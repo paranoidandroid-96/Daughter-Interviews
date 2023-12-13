@@ -13,6 +13,7 @@
 |05-12-2012|  #Elena #Igor  |  :fr:  |  Sound of Violence  |  Emmanuel Stranadica  |  [Interview - Daughter](http://web.archive.org/web/20130114154232/http://www.soundofviolence.net/articles/interview/451/daughter.html)  |  |
 |10-12-2012|  #Elena #Igor #Remi  | :us:  |  WFUV  |  Kara Manning  |  [Daughter: TAS In Session](https://wfuv.org/121210/daughter-tas-session) \ [Take Five](https://wfuv.org/content/take-five-alternate-side-daughter) \ [The Alternate Side](http://web.archive.org/web/20140722111117/http://thealternateside.org/121210/daughter-tas-session) |  |
 |01-02-2013|  #Elena #Igor #Remi  |  :uk:   |  Crack Magazine  | Geraint Davies  |  [Issuu](https://issuu.com/crackmagazine/docs/crack27-low-res/14) [Website](https://crackmagazine.net/article/news/daughter/)  
+|04-02-2013|  #Elena #Igor #Remi  |  :uk:   |  Zero Core  |  Lauren Down  |  [Daughter](https://issuu.com/croatoan/docs/zero_core_issue_5_issuu/12)  |  |
 |20-02-2013|  #Elena #Igor |  :de:  |  Intro  |  Martin Riemann  |  [Daughter Trojanische Songs](https://www.yumpu.com/de/document/read/21114377/intro/68)  [Intro](https://www.intro.de/popmusik/daughter) |  |
 |24-02-2013|  #Elena #Igor #Remi  |  :uk:  |  The Guardian   |  Tom Lamont  |  [Interview - One to Watch: Daughter](https://www.theguardian.com/music/2013/feb/24/daughter-pop-if-leave-letterman?INTCMP=SRCH)  |  |
 |01-03-2013|  #Elena  |  :de:  |  Westzeit  |  Marcus Willfroth  |  [Keine schmutzige Wäsche mehr waschen](https://www.westzeit.de/interviews/?id=1582)
