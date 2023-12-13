@@ -1,4 +1,4 @@
-|  Date    |  Members  |  Country  |            Media            |    Author      |  Original link  |  Local backup  |
+|  Date    |  Members  |  Country  |            Media            |    Author      |  Original link  |  Backup        |
 |----------|-----------|-----------|-----------------------------|----------------|-----------------|----------------|
 |31-01-2011|  #Elena   |  :uk:       |  Who's Jack               |      -         |  [The Future of London](https://issuu.com/whosjack/docs/wj45) |  |
 |09-02-2011|  #Elena   |  :uk:     |  Wears The Trousers         |    Alan Pedder |   [voice on the verge #59: daughter](http://web.archive.org/web/20110918220209/http://www.wearsthetrousers.com/2011/02/voice-on-the-verge-59-daughter/) |  |
