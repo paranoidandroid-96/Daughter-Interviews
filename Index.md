@@ -15,5 +15,8 @@
 |01-02-2013|  #Elena #Igor #Remi  |  :uk:   |  Crack Magazine  | Geraint Davies  |  [Issuu](https://issuu.com/crackmagazine/docs/crack27-low-res/14) [Website](https://crackmagazine.net/article/news/daughter/)  
 |20-02-2013|  #Elena #Igor |  :de:  |  Intro  |  Martin Riemann  |  [Daughter Trojanische Songs](https://www.yumpu.com/de/document/read/21114377/intro/68)  [Intro](https://www.intro.de/popmusik/daughter) |  |
 |24-02-2013|  #Elena #Igor #Remi  |  :uk:  |  The Guardian   |  Tom Lamont  |  [Interview - One to Watch: Daughter](https://www.theguardian.com/music/2013/feb/24/daughter-pop-if-leave-letterman?INTCMP=SRCH)  |  |
+|01-03-2013|  #Elena  |  :de:  |  Westzeit  |  Marcus Willfroth  |  [Keine schmutzige Wäsche mehr waschen](https://www.westzeit.de/interviews/?id=1582)
+|13-03-2013|  #Elena  |  :de: :be:  |  7digital    |  -  |  [Daughter - Interview](https://de.7digital.com/features/VHx8TycAACgAOxzo/daughter) [Daughter - Interview (FR)](https://fr-be.7digital.com/features/VJGbDykAACkAkFcf/daughter)
+
 
 
