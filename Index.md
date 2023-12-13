@@ -5,4 +5,4 @@
 |23-06-2011|  #Elena   |  :us:  :uk:  |  Consequence of Sound  |  Tony Hardy    |  [All due respect Daughter](https://consequence.net/2011/06/all-due-respect-daughter/)  |  |
 |29-06-2011|  #Elena   |  :us:  :uk:  |  Vogue  |    Freddie Campion  | [Artist of the Week: Daughter’s Elena Tonra](http://web.archive.org/web/20110808022112/http://www.vogue.com/culture/article/artist-of-the-week-daughters-elena-tonra)  |  |
 |18-01-2012|  #Elena    | :us: :uk:   |  ’SUP MAGAZINE  |  Josh Jones  |  [Daughter](http://web.archive.org/web/20120830011622/http://supmag.com/2012/01/daughter/)  | |
-
+|27-02-2012|  #Elena    |  :uk:       |  DIY Magazine  |  Lauren Down  |  [First On: Daughter](https://issuu.com/thisisfakediy/docs/march-2012/21)  |  |
