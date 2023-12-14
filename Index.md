@@ -33,6 +33,6 @@
 |26-03-2013|  #Elena #Igor  #Remi  |  :belgium:  |  Agenda Magazine  |  Nicolas Alsteen  |  [Issuu](https://issuu.com/brusselnieuws.be/docs/agenda_1371/22) [Daughter Leave in Peace](https://www.bruzz.be/en/culture/cultural-news/daughter-leave-peace-2013-03-29)  |  |
 |27-03-2013|  #Elena  |  :australia:  |  The Drum Media  |  Brendan Telford  |  [Embracing the Insular](https://issuu.com/spa_magazines/docs/dp_331/14)  |  |
 |27-03-2013|  #Elena  |  :jp:  |  ele-king |  Yuho Hashimoto, Hikari Hakozaki  |  [Interview with Daughter](https://www.ele-king.net/interviews/002858/)  |  |
-|29-03-2013|  #Elena  |  :jp:  |  Qetic  |  Yuki Michinaka  |   [Interview：Elena Tonra](http://web.archive.org/web/20160410120436/http://www.qetic.jp:80/interview/daughter-3/95944)  |  |
+|29-03-2013|  #Elena  |  :jp:  |  Qetic  |  Yuki Michinaka  |   [Interview: Elena Tonra](http://web.archive.org/web/20160410120436/http://www.qetic.jp:80/interview/daughter-3/95944)  |  |
 
 
