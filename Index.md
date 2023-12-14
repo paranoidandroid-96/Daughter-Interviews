@@ -28,6 +28,7 @@
 |18-03-2013|  #Elena #Igor  |  :belgium:  |  Focus Vif  |  Laurent Hoebrechts  |  [Daughter - If You Leave](https://focus.levif.be/daughter-if-you-leave/)  |  |
 |20-03-2013|  #Elena  |  :australia:  |  Groupie  |  Erin Moy  |  [Interview: Daughter](http://web.archive.org/web/20130616232826/http://www.pagesdigital.com/interview-daughter/)  |  |
 |21-03-2013|  #Igor  |  :ireland:  |  Hot Press  |  Craig Fitzpatrick  |  [Hot Press meets Igor Haefeli from Daughter](https://www.hotpress.com/music/hot-press-meets-igor-haefeli-from-daughter-9662412)  |  |
+|21-03-2013|  #Elena  |  :denmark:  |  VEGA Magasin  |  Camilla Grausen  |  [Det Bliver Måske Lidt Deprimerende - Daughter](https://issuu.com/vegadk/docs/vega9/50)  |  |
 |21-03-2013|  #Elena  #Igor  #Remi  |  :netherlands:  |  File Under: New Music  |  -  |  [Daughter - Interview](http://www.fileunder.nl/archives/2013/03/daughter_interview_2013.php)  |  | 
 |22-03-2013|  #Elena  |  :netherlands:  |  Het Parool | -  |   [Daughter brengt langverwacht debuut uit](https://www.parool.nl/kunst-media/daughter-brengt-langverwacht-debuut-uit~b8d21aaa/) [AD](https://www.ad.nl/muziek/daughter-brengt-langverwacht-debuut-uit~a8d21aaa/) [FaceCulture](https://www.youtube.com/watch?v=qLs5psm3Rdw) |  |
 |26-03-2013|  #Elena #Igor  #Remi  |  :belgium:  |  Agenda Magazine  |  Nicolas Alsteen  |  [Issuu](https://issuu.com/brusselnieuws.be/docs/agenda_1371/22) [Daughter Leave in Peace](https://www.bruzz.be/en/culture/cultural-news/daughter-leave-peace-2013-03-29)  |  |
