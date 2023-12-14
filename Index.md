@@ -17,7 +17,8 @@
 |20-02-2013|  #Elena #Igor |  :de:  |  Intro  |  Martin Riemann  |  [Daughter Trojanische Songs](https://www.yumpu.com/de/document/read/21114377/intro/68)  [Intro](https://www.intro.de/popmusik/daughter) |  |
 |24-02-2013|  #Elena #Igor #Remi  |  :uk:  |  The Guardian   |  Tom Lamont  |  [Interview - One to Watch: Daughter](https://www.theguardian.com/music/2013/feb/24/daughter-pop-if-leave-letterman?INTCMP=SRCH)  |  |
 |28-02-2013|  #Elena #Igor #Remi  |  :belgium:  |  RifRaf Musiczine  |  Melissa Janssen |  [Daughter - Muziek die de sfeer bederft](https://issuu.com/rifrafmusiczine/docs/online-ezine-nl-maart13/6)  |  |
-|01-03-2013|  #Elena  |  :de:  |  Westzeit  |  Marcus Willfroth  |  [Keine schmutzige Wäsche mehr waschen](https://www.westzeit.de/interviews/?id=1582)
+|01-03-2013|  #Elena  |  :de:  |  Westzeit  |  Marcus Willfroth  |  [Keine schmutzige Wäsche mehr waschen](https://www.westzeit.de/interviews/?id=1582)  |  |
+|01-03-2013|  #Elena #Igor  #Remi  |  :uk:  |  DIY Magazine  |  Emma Swann  |  [Sweet Child O'Mine](https://issuu.com/thisisfakediy/docs/march-2013/54)  |  |
 |03-03-2013|  #Elena #Igor  |  :scotland:  |  The Scotsman  |  Aidan Smith  |  [British band Daughter on matters of life & death](https://www.scotsman.com/arts-and-culture/british-band-daughter-matters-life-death-1587641)  |  |
 |04-03-2013|  #Elena  |  :ireland:  |  Irish Examiner  |  Ed Power  |  [The First Lady of Nu Folk](https://www.irishexaminer.com/lifestyle/arid-20224412.html)  |  |
 |05-03-2013|  #Elena  |  :ireland:  |  TN2 Magazine  |  Alana Ryan  |  [Issuu](https://issuu.com/trinitynews/docs/tn2_magazine_isue_8_2012_13/10) [Her Young Heart](https://www.tn2magazine.ie/her-young-heart/)  |  |
