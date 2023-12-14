@@ -19,6 +19,7 @@
 |01-03-2013|  #Elena  |  :de:  |  Westzeit  |  Marcus Willfroth  |  [Keine schmutzige Wäsche mehr waschen](https://www.westzeit.de/interviews/?id=1582)
 |03-03-2013|  #Elena #Igor  |  :scotland:  |  The Scotsman  |  Aidan Smith  |  [British band Daughter on matters of life & death](https://www.scotsman.com/arts-and-culture/british-band-daughter-matters-life-death-1587641)  |  |
 |04-03-2013|  #Elena  |  :ireland:  |  Irish Examiner  |  Ed Power  |  [The First Lady of Nu Folk](https://www.irishexaminer.com/lifestyle/arid-20224412.html)  |  |
+|05-03-2013|  #Elena  |  :ireland:  |  TN2 Magazine  |  Alana Ryan  |  [Issuu](https://issuu.com/trinitynews/docs/tn2_magazine_isue_8_2012_13/10) [Her Young Heart](https://www.tn2magazine.ie/her-young-heart/)  |  |
 |09-03-2013|  #Elena  |  :belgium:  |  daMusic  |  Janne Degryse  |  [Daughter - Als het routine wordt, hoeft het voor ons niet meer](https://www.damusic.be/interview/daughter-29360.html)  |  |
 |13-03-2013|  #Elena  |  :de: :belgium:  |  7digital    |  -  |  [Daughter - Interview](https://de.7digital.com/features/VHx8TycAACgAOxzo/daughter) [Daughter - Interview (FR)](https://fr-be.7digital.com/features/VJGbDykAACkAkFcf/daughter)
 |15-03-2013|  #Elena #Igor  |  :ireland:  |  Irish Independent  |  Eamon Sweeney  |  [Lock up your daughters](https://www.independent.ie/entertainment/music/lock-up-your-daughters-29131934.html)  |  |16-03-2013|  #Elena  |  :de:  |  Deutschlandfunk  |  Dennis Kastrup  |  [Tiefe Traurigkeit über die Schwere des Lebens](https://www.deutschlandfunk.de/tiefe-traurigkeit-ueber-die-schwere-des-lebens-100.html)
@@ -28,6 +29,6 @@
 |21-03-2013|  #Elena  #Igor  #Remi  |  :netherlands:  |  File Under: New Music  |  -  |  [Daughter - Interview](http://www.fileunder.nl/archives/2013/03/daughter_interview_2013.php)  |  | 
 |22-03-2013|  #Elena  |  :netherlands:  |  Het Parool | -  |   [Daughter brengt langverwacht debuut uit](https://www.parool.nl/kunst-media/daughter-brengt-langverwacht-debuut-uit~b8d21aaa/) [AD](https://www.ad.nl/muziek/daughter-brengt-langverwacht-debuut-uit~a8d21aaa/) [FaceCulture](https://www.youtube.com/watch?v=qLs5psm3Rdw) |  |
 |27-03-2013|  #Elena  |  :jp:  |  ele-king |  Yuho Hashimoto, Hikari Hakozaki  |  [Interview with Daughter](https://www.ele-king.net/interviews/002858/)  |  |
-|29-03-2013|  
+|29-03-2013|  #Elena  |  :jp:  |  Qetic  |  Yuki Michinaka  |   [Interview：Elena Tonra](http://web.archive.org/web/20160410120436/http://www.qetic.jp:80/interview/daughter-3/95944)  |  |
 
 
