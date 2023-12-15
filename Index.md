@@ -38,3 +38,7 @@
 |03-04-2013|  #Elena #Igor #Remi  |  :netherlands:  |  NRC Handelsblad  |  Hester Carvalho  |  ['Onze liedjes richten zich op de duistere kant van het bestaan'](https://www.nrc.nl/nieuws/2013/04/03/onze-liedjes-richten-zich-op-de-duistere-kant-van-12638685-a60203)   [Zing als een overledene](https://www.nrc.nl/nieuws/2013/04/04/zing-als-een-overledene-12638851-a345478)  |  |
 |03-04-2013|  #Elena #Igor  |  :fr:  |  Les Inrockuptibles  |  Ondine Benetier  |  [Daughter: fille prodige](https://www.lesinrocks.com/musique/daughter-fille-prodige-59015-03-04-2013/)  |  |
 |03-04-2013|  #Elena  |  :australia:  |  Beat Magazine  |  Simone Ubaldi  |  [Issuu](https://issuu.com/furstmedia/docs/beat1365new/42) [Daughter](https://beat.com.au/daughter/) |  |
+|08-04-2013|  #Igor  |  :uk:  |  Clash Music  |  Robin Murray  |  [A Line Runs Through It: Daughter](https://www.clashmusic.com/features/a-line-runs-through-it-daughter/)  |  |
+|12-04-2013|  #Elena  |  :denmark:  |  GAFFA  | Holm Christensen  | [Daughter: Sangene er meget personlige](https://gaffa.dk/nyheder/2013/april/daughter-sangene-er-meget-personlige/) |  |
+|24-04-2013|  #Igor  |  :australia:  |  Tone Deaf  |  Corey Tonkin  |  [Daughter](https://tonedeaf.thebrag.com/daughter/)  |  |  
+|29-04-2013|  #Elena  |  :us:  |  Interview Magazine  |  Ilana Kaplan  |  [The Prodigious Daughter](https://www.interviewmagazine.com/music/daughter-if-you-leave)  |  |
