@@ -51,3 +51,8 @@
 |15-06-2013|  #Elena #Igor  |  :denmark:  |  DR Danmarks Radio  |  Peter Krogh Andersen  |  [Populære Daughter dyrker ensomheden](https://www.dr.dk/nyheder/kultur/musik/populaere-daughter-dyrker-ensomheden)  |  |
 |18-06-2013|  #Elena  |  :australia:  |  Scenewave  |  -  |  [Interview: Daughter](https://scenewave.com/2013/06/interview-daughter/)  |  |
 |25-06-2013|  #Elena  |  :uk:  |  BBC  |  Mark Savage  |  [Glastonbury preview: Dizzee Rascal, Emily Eavis and Alt-J](https://www.bbc.com/news/entertainment-arts-22906878)  |  |
+|02-03-2013|  #Elena  |  :australia:  |  Beat Magazine  |  Benjamin Cooper  |  [Issuu](https://issuu.com/furstmedia/docs/beat1378/22)  [Website](https://beat.com.au/daughter-2/)  |  |
+|08-07-2013|  #Elena  |  :australia:  |  The Brag  |  Nick Jarvis, Benjamin Cooper  |  [Issuu](https://issuu.com/thebrag/docs/brag_520/19) [Website](https://thebrag.com/daughter/)  |  |
+|09-07-2013|  #Elena #Igor  |  :it:  |  Indie For Bunnies  |  Marta Bacigalupo  |  [Intervista con DAUGHTER](https://www.indieforbunnies.com/2013/07/09/daughter-la-nostra-intervista/)  |  |
+|15-07-2013|  #Elena #Igor #Remi  |  :switzerland:  |  Femina Suisse  |  Muriel Chavaillaz  |  [Interview: Le groupe Daughter se confie](https://www.femina.ch/societe/actu-societe/interview-le-groupe-daughter-se-confie)  |  |
+
