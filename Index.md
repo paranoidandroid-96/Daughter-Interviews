@@ -42,3 +42,7 @@
 |12-04-2013|  #Elena  |  :denmark:  |  GAFFA  | Holm Christensen  | [Daughter: Sangene er meget personlige](https://gaffa.dk/nyheder/2013/april/daughter-sangene-er-meget-personlige/) |  |
 |24-04-2013|  #Igor  |  :australia:  |  Tone Deaf  |  Corey Tonkin  |  [Daughter](https://tonedeaf.thebrag.com/daughter/)  |  |  
 |29-04-2013|  #Elena  |  :us:  |  Interview Magazine  |  Ilana Kaplan  |  [The Prodigious Daughter](https://www.interviewmagazine.com/music/daughter-if-you-leave)  |  |
+|09-05-2013|  #Elena  |  :us:  |  News-Press NOW  |  Andrew Gaug  |  [Some of the lucky ones](https://www.newspressnow.com/some-of-the-lucky-ones/article_f5182027-c26b-5f72-a853-21536bcf4409.html)  |  |
+|13-05-2013|  #Elena #Igor  #Remi  |  :netherlands:  |  The Daily Indie  |  Robin Van Essel  |  [INTERVIEW: Daughter](https://www.thedailyindie.nl/interview-daughter/)  |  |
+|20-05-2013|  #Igor  #Remi  |  :us:  |  WFUV  |  Kara Manning  |  [Daughter:TAS In Session](https://wfuv.org/130520/daughter-tas-session)  |  |  
+|20-05-2013|  #Elena  #Igor  #Remi  |  :uk:  |  Nerve Magazine  |  Charlotte Gay  |  [Issuu](https://issuu.com/subu01/docs/nervemag6/42)  [Website](https://charlottegay.wordpress.com/2013/05/21/daughter-interview-feature-nerve-magazine/)  |  |   
