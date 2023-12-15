@@ -46,3 +46,4 @@
 |13-05-2013|  #Elena #Igor  #Remi  |  :netherlands:  |  The Daily Indie  |  Robin Van Essel  |  [INTERVIEW: Daughter](https://www.thedailyindie.nl/interview-daughter/)  |  |
 |20-05-2013|  #Igor  #Remi  |  :us:  |  WFUV  |  Kara Manning  |  [Daughter:TAS In Session](https://wfuv.org/130520/daughter-tas-session)  |  |  
 |20-05-2013|  #Elena  #Igor  #Remi  |  :uk:  |  Nerve Magazine  |  Charlotte Gay  |  [Issuu](https://issuu.com/subu01/docs/nervemag6/42)  [Website](https://charlottegay.wordpress.com/2013/05/21/daughter-interview-feature-nerve-magazine/)  |  |   
+|10-06-2013|  #Elena  #Igor  |  :sweden:  |  HYMN  |  Wai Kei Fung  |  [Hultsfredsaktuella Daughter: ”Det är själ till själ, snarare än mun till mun”](https://hymn.se/2013/06/10/hultsfredsaktuella-daughter-det-aer-sjael-till-sjael-snarare-aen-mun-till-mun/)  |  |
