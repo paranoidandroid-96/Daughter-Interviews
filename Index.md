@@ -47,3 +47,7 @@
 |20-05-2013|  #Igor  #Remi  |  :us:  |  WFUV  |  Kara Manning  |  [Daughter:TAS In Session](https://wfuv.org/130520/daughter-tas-session)  |  |  
 |20-05-2013|  #Elena  #Igor  #Remi  |  :uk:  |  Nerve Magazine  |  Charlotte Gay  |  [Issuu](https://issuu.com/subu01/docs/nervemag6/42)  [Website](https://charlottegay.wordpress.com/2013/05/21/daughter-interview-feature-nerve-magazine/)  |  |   
 |10-06-2013|  #Elena  #Igor  |  :sweden:  |  HYMN  |  Wai Kei Fung  |  [Hultsfredsaktuella Daughter: ”Det är själ till själ, snarare än mun till mun”](https://hymn.se/2013/06/10/hultsfredsaktuella-daughter-det-aer-sjael-till-sjael-snarare-aen-mun-till-mun/)  |  |
+|11-06-2013|  #Igor  |  :switzerland:  |  LeMurDuSon  |  Alexandre  |  [Daughter : « Nous nous sommes juste connus musicalement de manière naturelle »](http://web.archive.org/web/20170813034745/http://lemurduson.ch/daughter-en-interview/)  |  |
+|15-06-2013|  #Elena #Igor  |  :denmark:  |  DR Danmarks Radio  |  Peter Krogh Andersen  |  [Populære Daughter dyrker ensomheden](https://www.dr.dk/nyheder/kultur/musik/populaere-daughter-dyrker-ensomheden)  |  |
+|18-06-2013|  #Elena  |  :australia:  |  Scenewave  |  -  |  [Interview: Daughter](https://scenewave.com/2013/06/interview-daughter/)  |  |
+|25-06-2013|  #Elena  |  :uk:  |  BBC  |  Mark Savage  |  [Glastonbury preview: Dizzee Rascal, Emily Eavis and Alt-J](https://www.bbc.com/news/entertainment-arts-22906878)  |  |
