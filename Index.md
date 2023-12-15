@@ -36,4 +36,5 @@
 |27-03-2013|  #Elena  |  :jp:  |  ele-king |  Yuho Hashimoto, Hikari Hakozaki  |  [Interview with Daughter](https://www.ele-king.net/interviews/002858/)  |  |
 |29-03-2013|  #Elena  |  :jp:  |  Qetic  |  Yuki Michinaka  |   [Interview: Elena Tonra](http://web.archive.org/web/20160410120436/http://www.qetic.jp:80/interview/daughter-3/95944)  |  |
 |03-04-2013|  #Elena #Igor #Remi  |  :netherlands:  |  NRC Handelsblad  |  Hester Carvalho  |  ['Onze liedjes richten zich op de duistere kant van het bestaan'](https://www.nrc.nl/nieuws/2013/04/03/onze-liedjes-richten-zich-op-de-duistere-kant-van-12638685-a60203)   [Zing als een overledene](https://www.nrc.nl/nieuws/2013/04/04/zing-als-een-overledene-12638851-a345478)  |  |
-
+|03-04-2013|  #Elena #Igor  |  :fr:  |  Les Inrockuptibles  |  Ondine Benetier  |  [Daughter: fille prodige](https://www.lesinrocks.com/musique/daughter-fille-prodige-59015-03-04-2013/)  |  |
+|03-04-2013|  #Elena  |  :australia:  |  Beat Magazine  |  Simone Ubaldi  |  [Issuu](https://issuu.com/furstmedia/docs/beat1365new/42) [Daughter](https://beat.com.au/daughter/) |  |
