@@ -129,4 +129,5 @@
 |	1.	|29-01-2016|	#Remi				|	:us:			|	Modern Drummer				|	-								|	[Daughter’s Remi Aguilella](https://www.moderndrummer.com/2016/01/daughters-remi-aguilella/)																																																	|				|	
 |	1.	|29-01-2016|	#Elena #Igor #Remi	|	:uk:			|	DIY Magazine				|	Will Richards					|	[A Weird Kind of Therapy](https://issuu.com/diymagazine/docs/diy__february_2016_/44) [Website](https://diymag.com/interview/daughter-interview-not-to-disappear)																																																			|				|	
 |	1.	|xx-01-2016|	#Elena #Igor #Remi	|	:uk:			|	Brighton's Finest			|	Jeff Hemmings					|	[Daughter - Interview - 2016](https://brightonsfinest.com/music/spotlight/daughter-interview-2016/2016/) [Archive](http://web.archive.org/web/20160601132957/http://www.brightonsfinest.com/html/index.php/9-articles/1136-daughter-interview-2016)												|				|	
+|	1.	|03-02-2016|	#Elena #Igor #remi	|	:jp:			|	Only in Dreams				|	Kazumichi Kokei					|	[DAUGHTER〔FEATURED ARTISTS Vol.3](http://www.onlyindreams.com/interview/2016/01/300000/)																																																		|				|	
 
