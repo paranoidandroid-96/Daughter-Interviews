@@ -192,5 +192,7 @@
 |	1.	|12-04-2019|	#Elena				|	:fr:			|	Le Cargo!					|	Mickaël Adamadorassy			|	[Ex:Re - "Pour moi, Ex:Re c'est un disque d'amis"](https://www.lecargo.org/spip/ex-re/pour-moi-ex-re-c-est-un-disque-d/article9852.html) [Ex:Re - "Ex : Re is a friends record" (english version)](https://www.lecargo.org/spip/ex-re/ex-re-is-a-friends-record-english/article9863.html)		|				|
 |	1.	|22-04-2019|	#Elena				|	:jp:			|	note						|	Yoshiyuki Suzuki				|	[エレナ・トンラ（Ex:Re）インタビュー](https://note.com/hardlistening/n/n00a071723b0d)																																																				|				|
 |	1.	|14-05-2019|	#Elena				|	:fr:			|	Sound of Violence			|	Emmanuel Stranadica				|	[Ex:Re](https://www.soundofviolence.net/articles/interview/762/ex_re.html)																																																						|				|
-
+|	1.	|16-02-2021|	#Elena #Josephine	|	:us:			|	Under the Radar				|	Joey Arnone						|	[Ex:Re (Elena Tonra of Daughter) Announces New Album, Shares Video for “Where the Time Went”](https://www.undertheradarmag.com/news/exre_elena_tonra_of_daughter_announces_new_album_shares_video_for_where_the/)																				|				|											
+|	1.	|17-02-2021|	#Elena				|	:uk:			|	NME							|	Caleb Triscari					|	[Daughter’s Elena Tonra announces reinterpretation of solo debut album ‘Ex:Re’](https://www.nme.com/en_asia/news/music/daughters-elena-tonra-announces-reinterpretation-of-solo-debut-album-exre-2882460)																						|				|																
+|	1.	|19-02-2021|	#Elena #Josephine	|	:uk:			|	4AD							|	-								|	[Ex:Re: 'Ex:Re with 12 Ensemble'](https://4ad.com/releases/943)																																																									|				|												
 	
