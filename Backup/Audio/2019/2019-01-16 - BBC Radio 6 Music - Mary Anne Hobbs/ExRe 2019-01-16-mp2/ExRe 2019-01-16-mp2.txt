@@ -1,0 +1,46 @@
+Ex:Re
+BBC Session (for Mary Anne Hobbs show)
+Media City
+Manchester
+U.K.
+2019-01-16
+
+Romance :
+https://www.youtube.com/watch?v=6pNhrlPU-fA
+
+http://www.bbc.co.uk/programmes/m00023mb
+
+http://ichef.bbci.co.uk/images/ic/640x360/p07241t8.jpg
+
+also:
+http://ichef.bbci.co.uk/images/ic/128x72/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/144x81/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/192x108/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/256x144/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/384x216/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/480x270/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/624x351/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/608x342/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/640x360/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/864x486/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/944x531/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/976x549/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/1024x576/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/1280x720/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/1632x918/p07241t8.jpg
+http://ichef.bbci.co.uk/images/ic/1920x1080/p07241t8.jpg
+etc ...
+
+Digital Satellite (live) broadcast 2019-01-16 MPEG1 layer 2 48kHz @ 160kbps:
+BBC Radio 6 Music > DVB-S > TBS 6984 > DVBviewer > .mp2 >
+Mpeg2Schnitt (trimming) > .mp2. Tags added with Mp3tag.
+
+  1. Interview                     8:59
+  2. The Dazzler
+//
+  3. Romance
+  4. Closing comments              7:19
+Total Time : [16:19]
+
+https://www.elenatonra.com/
+

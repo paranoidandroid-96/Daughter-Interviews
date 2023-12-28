@@ -1,0 +1,15 @@
+StudioBru
+
+https://stubru.be/luister/select/radar/daughter-is-na-7-jaar-terug-ontdek-de-nieuwe-plaat-stereo-mind-game-hier
+
+mpd
+
+https://ondemand.vrtcdn.be/content/vod/aud-cfad9489-a082-499f-aa4b-1095b59cae2d-CDN_2/aud-cfad9489-a082-499f-aa4b-1095b59cae2d-CDN_2_nodrm_53282154-7565-4945-8ad7-87a0bc25c9de.ism/.mpd?filter=%28%21%28type%3D%3D%22audio%22%26%26FourCC%21%3D%22AACL%22%29%29
+
+?sentry_key
+
+a49787537bc74c57bee5982de257cdf8
+
+yt-dlp mpdlink
+
+ffmpeg -i file.m4a -decryption_key a49787537bc74c57bee5982de257cdf8 -codec copy new.m4a

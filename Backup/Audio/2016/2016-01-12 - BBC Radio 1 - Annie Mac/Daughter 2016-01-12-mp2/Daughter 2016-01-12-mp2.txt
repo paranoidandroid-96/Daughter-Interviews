@@ -1,0 +1,48 @@
+Daughter
+BBC Session (for Annie Mac show)
+Maida Vale Studios
+London
+U.K.
+2016-01-12
+
+http://www.bbc.co.uk/programmes/b06vfww8
+http://www.bbc.co.uk/programmes/p03fbbhx
+
+http://ichef.bbci.co.uk/images/ic/640x360/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/976x549/p03fbbfk.jpg
+
+also:
+http://ichef.bbci.co.uk/images/ic/128x72/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/144x81/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/192x108/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/256x144/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/384x216/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/480x270/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/624x351/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/608x342/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/640x360/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/864x486/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/944x531/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/976x549/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/1024x576/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/1280x720/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/1632x918/p03fc2xn.jpg
+http://ichef.bbci.co.uk/images/ic/1920x1080/p03fc2xn.jpg
+etc ...
+
+Digital Satellite (live) broadcast 2016-01-12 MPEG1 layer 2 48kHz @ 192kbps:
+BBC Radio 1 > DVB-S > TBS 6984 > DVBviewer > .mp2 >
+Mpeg2Schnitt (trimming) > .mp2. Tags added with Mp3tag.
+
+  1. Introduction
+  2. Numbers
+  3. Interview
+  4. How                              13:37
+//
+  5. Interview
+  6. Runnin' (Lose It All)
+  7. Closing comments                  7:24
+Total Time : [21:02]
+
+http://ohdaughter.com/
+

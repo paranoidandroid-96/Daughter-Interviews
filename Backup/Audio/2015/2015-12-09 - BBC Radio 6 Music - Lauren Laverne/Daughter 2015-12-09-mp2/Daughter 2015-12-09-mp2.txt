@@ -1,0 +1,47 @@
+Daughter
+BBC Session (for Lauren Laverne show)
+BBC 6 Music Studios
+London
+U.K.
+2015-12-09
+
+http://www.bbc.co.uk/programmes/b06qnl6j
+http://www.bbc.co.uk/programmes/p03blrkb
+
+http://ichef.bbci.co.uk/images/ic/640x360/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/640x360/p03blrf6.jpg
+
+also:
+http://ichef.bbci.co.uk/images/ic/128x72/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/144x81/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/192x108/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/256x144/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/384x216/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/480x270/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/624x351/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/608x342/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/640x360/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/864x486/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/944x531/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/976x549/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/1024x576/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/1280x720/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/1632x918/p03blxpz.jpg
+http://ichef.bbci.co.uk/images/ic/1920x1080/p03blxpz.jpg
+etc ...
+
+Digital Satellite (live) broadcast 2015-12-09 MPEG1 layer 2 48kHz @ 160kbps:
+BBC Radio 6 Music > DVB-S > TBS 6984 > DVBviewer > .mp2 >
+Mpeg2Schnitt (trimming) > .mp2. Tags added with Mp3tag.
+
+  1. Interview
+  2. Doing The Right Thing
+  3. Interview                            14:40
+//
+  4. Interview
+  5. Numbers
+  6. Closing Comments                      9:40
+Total Time : [24:20]
+
+http://ohdaughter.com/
+
