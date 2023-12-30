@@ -2,7 +2,7 @@
 
 <img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/6b8e6a6c97092095225ed7165fc0893d76fb6e5c/daughter_stereo_mind_game.jpg"  width=50% height=50%>
 
-This repository contains interviews of the british band Daughter.
+This repository contains interviews of the english band Daughter.
 
 [General index of all interviews](https://github.com/paranoidandroid-96/Daughter-Interviews/blob/7c7119f7bd8030bce790d320347be1cd23232ef7/Index.md)
 
