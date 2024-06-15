@@ -1,7 +1,9 @@
 # All Due Respect Daughter
 ## CoSign: Daughter
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/e060004a979b9d11ae509eca522127c36a7b8850/Images/Elena.jpg">
 
-Tony Hardy \\
+
+Tony Hardy \
 June 23, 2011 | 2:18pm ET 
 
 Is it just me, or are indie female singer-songwriters getting younger all the time? While not quite at the veteran-of-two-albums stage like, say, Laura Marling or Alessi’s Ark, Elena Tonra, aka Daughter, is busy making waves at age 21 with her debut EP, His Young Heart. The self-released four-tracker follows a series of demos she put out last year through her social network pages. North London-raised Tonra comes from a musical family, often a key link in the development of raw talent. “My family are music lovers, so music was a big part when growing up,” the artist says. “My grandfather would sing Irish folk songs all the time in the kitchen, and my whole family would gather around to listen. He was a great performer, and everyone really loved him, so I think he inspired me a lot when I was little.”
