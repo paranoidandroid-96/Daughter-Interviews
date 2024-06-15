@@ -1,5 +1,5 @@
-#voice on the verge #59: daughter
-##voice on the verge #59 • daughter
+# voice on the verge #59: daughter
+## voice on the verge #59 • daughter
 
 Since we last posted about Elena Tonra (aka Daughter) back in December, her demos EP has found its way into plenty of eager ears. ‘Run’ in particular made big waves on Hype Machine, reaching #3 in their ‘Popular’ chart. With work ongoing on her debut EP proper and more great live shows in the offing (see below for all the info), we thought we ought to get to know Elena a bit better so we asked her to fill out our trusty questionnaire. Here the self-professed oddball tells us about her early ambitions to do “something grim”, her dubious cleaning tips and how she got a scar on her eyebrow.
 
@@ -89,19 +89,19 @@ Answered these questions!
 
 Elena has a bunch of great shows across London coming up over the next few weeks, starting off with tomorrow’s appearance at The Borderline as part of HMV’s Next Big Thing festival. On Sunday she supports Sharon Van Etten at the Hoxton Bar & Kitchen (as does Alessi’s Ark). On February 23 she supports Lia Ices at the Brixton Windmill and the following day will open for Matthew & The Atlas at St Stephen Church. Full list of dates below:
 
-10.02.11 The Borderline, London
-13.02.11 Hoxton Bar & Kitchen, London
-17.02.11 Shuga Buddha @ The Bedford, London
-23.02.11 Brixton Windmill, London
-24.02.11 St Stephen Church, London
-03.03.11 Little Howdy Do Festival @ Relentless Garage, London
+10.02.11 The Borderline, London \
+13.02.11 Hoxton Bar & Kitchen, London \
+17.02.11 Shuga Buddha @ The Bedford, London \
+23.02.11 Brixton Windmill, London \
+24.02.11 St Stephen Church, London \
+03.03.11 Little Howdy Do Festival @ Relentless Garage, London 
 
-Here’s a lovely new performance clip from the same sessions as the ‘Peter’ video we posted a while back:
+Here’s a lovely new performance clip from the same sessions as the ‘Peter’ video we posted a while back: 
 
-https://vimeo.com/19721590
+[<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/a7a364a792e9743c4934623b1665ba16be834460/Text/Resources/votv_daughter.png">](https://vimeo.com/19721590)
 
-Written by: Alan Pedder
+Written by: Alan Pedder 
 
-Tags: daughter, elena tonra
+Tags: daughter, elena tonra 
 
 This entry was posted on Wednesday, February 9th, 2011 at 3:23 pm and is filed under feature, voices on the verge. You can follow any responses to this entry through the RSS 2.0 feed. You can leave a response, or trackback from your own site. 
