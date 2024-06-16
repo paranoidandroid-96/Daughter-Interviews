@@ -4,6 +4,10 @@ The Temple News sits down with Daughter. The band played in Philly earlier this 
 
 01 November 2012 Victoria Marchiony
 
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/efde2ba9e3a917397db2991edfacee0e177b7ac4/Images/DSCN1463-web.jpg">
+
+**VICTORIA MARCHIONY / TTN**
+
 Some people are born entertainers. They crave spotlight, and will use whatever art form they’re best at as a means to get attention. Others perform because their art is so engrained in who they are that they have no choice but to make it and share it – because it is the fundamental means through which they process their experiences and engage with their lives. The three members of Daughter belong to the latter camp.
 
 Despite rapidly gaining notoriety following their formation in late 2010, Elena Tonra, Igor Haefeli and Remi Aguilella don’t foster delusions of grandeur, glamour or world domination. Rather, they have been taking their success in stride and maintaining a remarkable sense of humility and gratitude for having found a band that they’re excited about making music with.
