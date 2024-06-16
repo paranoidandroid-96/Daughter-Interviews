@@ -98,7 +98,7 @@ Elena has a bunch of great shows across London coming up over the next few weeks
 
 Here’s a lovely new performance clip from the same sessions as the ‘Peter’ video we posted a while back: 
 
-[<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/a7a364a792e9743c4934623b1665ba16be834460/Text/Resources/votv_daughter.png">](https://vimeo.com/19721590)
+[<img src="https://i.vimeocdn.com/video/125266677-dcbc5a020f87e2844f08cc209499668c65e37f99c0d76c544128ac46785c8347-d">](https://vimeo.com/19721590)
 
 Written by: Alan Pedder 
 
