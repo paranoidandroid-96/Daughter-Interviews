@@ -1,6 +1,10 @@
 # Daughter 	
 ## A Fine Smothering of Young Emotion
 
+<p align="center">
+<img src ="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/d28fe3c89c57961a91668b004cbb04d0df9c3f52/Images/Timothy%20Cochrane/daughter_2013.jpg">
+</p>
+
 Whispering out from the speakers of teenage bedrooms across the land, Daughter’s anthemic ode to the heady rush of ‘Youth’ is fast becoming a Youtube covers sensation. Daughter seem oblivious to the attention, sheltered within the confines of the backstage ahead of a Beirut support slot, huddled against the driving rain outside.
 
 With a fragile, slightly awkward beauty, lead singer Elena Tonra is both compelling and shyly disarming in her sweetness. The two boys, slightly rumpled with sleep, lounge quietly on the sofas. Previously a solo project, Eleanor was joined by her boyfriend Igor Haefeli on guitar and college friend Remi Aguilella on drums. They met while studying at The Institute of Contemporary Music Performance in London, becoming a fully fledged group just two years ago.
