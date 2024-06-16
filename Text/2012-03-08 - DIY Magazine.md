@@ -3,6 +3,10 @@
 
 By Lauren Down on 8th March 2012
 
+<p align="center">
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/cc4e261b5c36ac608a768b2e80deeab08812d8e9/Images/Stacey%20Hatfield/daughter2600.jpg">
+<p/>
+  
 “I used to have this book when I was younger,” Elena Tonra explains over blaring coffee shop jingles, “but I couldn’t play an instrument or anything so it was just like a book of poems that I used to sing from. I mean to no one else, just to myself and well I was not young enough for this not to be embarrassing.” A charming, unassuming songstress with a wry sense of humour this seems like the only possible way Elena’s musical persona could have begun: tentatively and honestly.  
 
 Having started out performing as a solo artist the Daughter moniker was born from the relationship between her and guitarist Igor Haefeli, who began dating after meeting at Music College. “I asked him to play guitar for like one gig and it just kind of went from there. I really felt like I had found someone that knew where I wanted to go musically before I did. We have really similar ideas and he helped with the recording side of things because I am just so technically rubbish!” 
