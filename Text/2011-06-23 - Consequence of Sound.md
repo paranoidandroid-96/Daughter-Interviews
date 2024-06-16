@@ -24,4 +24,6 @@ Like most of her indie contemporaries, compromises for commercial success are no
 
 Fashion might be a passion, but playing live comes further up the list, and although Daughter has probably only done something like 15 gigs to date, she already has high points to look back on. Her EP launch party was the first gig where she felt the audience had specifically come for her, including her parents, who are not usually allowed in! “Supporting Ben Howard and Matthew & the Atlas at St. Stephens Church in West London was a real standout, too,” Tonra says. “It was a beautiful church and so wonderful to play alongside two amazing bands. It was the biggest crowd we’d ever played to. I was bloody petrified, if I’m honest!” See what you think from this video from St Stephens. We feel you’ll want to see a lot more of Daughter.
 
+[<img src="https://i.ytimg.com/vi/UGokngiatRE/maxresdefault.jpg">](https://www.youtube.com/watch?v=UGokngiatRE)
+
 
