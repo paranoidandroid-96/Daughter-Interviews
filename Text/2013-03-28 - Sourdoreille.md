@@ -1,0 +1,36 @@
+# Daughter, rencontre avec des équilibristes
+
+8 minutes \
+Écrit par Diane le 28.03.2013
+
+*** Daughter, comme son nom ne l’indique pas, est un trio composé d’une Anglaise (Elena), d’un Français (Remi) et d’un Suisse (Igor). Qui ont en commun un amour des mélodies mélancoliques et des atmosphères ouatées. Et qui viennent de sortir leur premier album « If You Leave ». On les a rencontrés le mois dernier à Paris. Récit. ***
+
+C’est avec une belle régularité que Daughter livre chaque année le fruit de leur travail : succédant aux EPs « His Young Heart » (2011) et « The Wild Youth » (2012), dont certains morceaux sont en écoute sur soundcloud, « If You Leave » vient de voir le jour, et le moins qu’on puisse dire, c’est que c’est un album qui tient ses promesses. En toute modestie, le trio déroule le fil d’une pop-folk apaisante et fragile, d’une pureté presque irréelle. Alors on sait bien que c’est insensé, mais on a tout d’un coup envie d’être debout sur le toit d’un train lancé à pleine vitesse, sous une pluie fine, en équilibre.
+
+https://youtu.be/uUWrcFpmI5U
+
+Comme la musique de l’orfèvre suédois Peter Von Poehl, le son de Daughter est visuellement très fort – plusieurs de leurs morceaux ont d’ailleurs été utilisés dans des séries comme Grey’s Anatomy ou Skins. On le voit aussi dans le clip poignant de Still (ci-dessus), où l’osmose entre son et image est parfaite. La détresse en devient quasi-palpable, dans ce filet de voix qui s’éteint, mais aussi dans ce corps qui se tord, ces regards qui ne se rencontrent plus. Une tranche de vie comme on aimerait en voir plus souvent, d’un réalisme qui ne s’embarrasse pas de pincettes inutiles, et qui prend au tripes. Elena nous éclaire : « On aime vraiment le côté visuel de la musique, son pouvoir de créer de l’espace, comme l’ont bien compris Sigur Ros« . Et Igor de rajouter : « On cherche à mettre l’image dans le son. C’est un peu un comble pour un musicien, mais je suis plus visuel d’auditif : un son va généralement me faire penser à une image ! » Remi, lui aussi, voit beaucoup d’images quand il joue : « Chaque soir, je me crée ma propre histoire, et je change un peu à chaque fois« .
+
+https://youtu.be/GnkzvAXWV-0
+
+Au départ, il n’y avait qu’Elena. Mais elle ne se trouve « pas assez douée en guitare » pour continuer seule, et propose à Igor (son petit ami) puis à Remi, qui était en cours avec elle, de la rejoindre : « C’était très naturel car on se connaissait tous bien avant. Pour le nom de Daughter, l’idée m’est venue quand je jouais encore en solo, mais les autres l’ont aussi aimé, donc on l’a gardé. Je trouvais que ça correspondait bien à mes paroles. Ça me fait aussi penser à mon enfance. Même s’ils n’étaient pas musiciens, mes parents étaient des passionnés de musique. D’ailleurs mon frère aussi est dans la musique : il est pianiste classique, et lui est vraiment doué !« 
+
+En tout cas, c’est elle qui écrit les paroles. « Souvent ça vient d’un coup, et elle ne va pas les réécrire. » précise Igor. « C’est très sporadique, pas du tout planifié. Elle va souvent amener une mélodie avec, des accords à la guitare, et après on avance sur l’arrangement. Ou parfois, c’est arrivé que ça parte plutôt d’une idée musicale. Il n’y a pas vraiment de formule.« 
+
+https://youtu.be/MbCeyb9okac
+
+Un an s’est écoulé depuis le début de l’écriture en janvier 2012, et le mastering en décembre à Abbey Road. Igor explique : « Au début, beaucoup de choses de sont passées facilement. Après on a fait, refait, transformé, ça a pris plus de temps… Mais on a aussi beaucoup tourné entretemps ! » C’est lui qui s’est chargé de la production tout au long de l’enregistrement. La production additionnelle, elle, a été assurée tour à tour par des pointures du milieu : Rodaidh McDonald (The xx, Adele) puis Jolyon Vaughan Thomas (Maps), et enfin Ken Thomas (Sigur Ros, M83), le père de Jolyon, qui a mixé l’album. Ils ont beaucoup aidé le groupe à ajouter les touches finales sur les morceaux, en particulier Rodaidh McDonald, qui les a amenés à explorer les univers électroniques.
+
+Igor nous parle de l’enregistrement : « On a été chanceux d’enregistrer à Londres, mais on a enchaîné plein de studios différents, parce que vu qu’on partait en tournée certains n’étaient plus libres, ou certains autres n’avaient pas tout ce dont on avait besoin… If You Leave, c’est un peu un puzzle ! » On ne le ressent pas forcément à l’écoute, mais seuls trois morceaux (Tomorrow, Shallows, et Youth) ont été enregistrés en live, dans la même pièce. Alors pour le prochain album, ils aimeraient bien s’installer dans un studio et enregistrer plus de choses d’un seul coup. Remi acquiesce : « Ce serait bien d’avoir le son d’une pièce unique. Une fois que tu as enregistré, tu dois vraiment tout garder, et même s’il y a un des petits détails qui choquent un peu au départ, au final, c’est plus humain. » Au tour d’Elena de renchérir : « L’important, c’est de se sentir à l’aise. Pas d’être dans un studio qui nous fait l’impression d’une boîte stérile. » Où aller enregistrer, dans ce cas ? Elle hésite un peu, puis se décide : « Dans une église. Ou mieux encore, sur un petit bateau ! » On a hâte d’entendre ça.
+
+https://youtu.be/psiILfa-G1c
+
+Même si Youth est toujours présente sur l’album, « If You Leave » marque le passage à une autre étape : disparue, la référence à la jeunesse dans le titre, les Daughter ont grandi. Ce qui ne veut pas dire que tout a changé : les titres des albums font toujours trois mots, et ceux des morceaux un seul. A l’exception notable de The Woods présent sur leur premier EP « His Young Heart », « qui d’ailleurs aurait très bien pu être Woods » avoue Igor avec un sourire. Il nous donne l’explication, toute simple : « Elena s’écrit la setlist sur la main, et 5-6 mots par titre ce serait impossible ! »
+
+C’est aussi une manière de ne pas trop en dire, « de suggérer quelque chose avec un mot, de laisser le reste libre, car le sens des chansons doit rester ouvert à ceux qui écoutent« , précise Igor. Toujours avec l’idée de laisser chacun s’approprier la musique comme il le souhaite, le groupe a créé sur leur site un espace libre où on peut télécharger chaque piste réelle de Youth (ainsi que les 4 pistes vidéos des différentes caméras lors de la captation de leur live au Assembly Home). Remi explique : « On est très intéressés de voir ce que les gens peuvent faire de notre musique. Et si certains ont envie de faire des remixes, autant qu’ils bossent à partir d’un fichier qui n’est pas corrompu ! » Igor approuve : « J’ai toujours été intéressé par la culture du remix, par l’idée de pouvoir recycler la musique, la transformer. Je suis vraiment content qu’on puisse donner cette opportunité à des gens, alors qu’on n’a jamais demandé à quelqu’un de faire un remix officiel. » A écouter ci-dessous, un remix à l’inspiration house, délicieux.
+
+https://soundcloud.com/allefarben/daughter-youth-alle-farben
+
+On espère que vous avez déjà vos places pour leur concert au Café de la Danse le 19 avril prochain dans le cadre du Festival Clap Your Hands, parce qu’il est déjà complet. Mais sinon pas d’inquiétude, c’est sûr, ce ne sera pas la dernière fois qu’ils se produiront à Paris.
+
+Crédit photo : Stacey Hatfield
