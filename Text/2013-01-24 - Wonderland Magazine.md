@@ -2,6 +2,8 @@
 
 London-based trio Daughter are on a sold-out UK and European tour and are about to unleash their debut LP ‘If You Leave’ in March. Wonderland caught up with frontwoman Elena to talk tour goss, tears and their beautifully brooding avant-garde take on acoustic folk.
 
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/1dfa4bea54d17950c12236b3fb19459b10ffef68/Images/Eliot%20Lee%20Hazel/daughter_5214_eliot_lee_hazel_small.jpg">
+
 **Congratulations on the sold-out tour! How are the shows going to differ from the festivals that you’ve played?**
 
 We’re playing at lots of churches and we really enjoy it, I think it’s our thing. The atmosphere is always slightly gloomy in a good way. We’re so overwhelmed at the reaction that the tour has had. It’s pretty mindblowing. I was quite worried about it but it’s going be great – even though I’m going be so so nervous.
