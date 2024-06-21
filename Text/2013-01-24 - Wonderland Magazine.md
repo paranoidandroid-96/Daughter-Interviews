@@ -16,6 +16,9 @@ I was in the same class at college as Igor and Remi was studying drums. I was do
 
 I do all of the lyrics and if I’m honest I haven’t ever tried writing with anyone else. Some of the lyrics i’ve written I never thought that anyone else would hear them.
 
+[<img src="https://i1.ytimg.com/vi/GnkzvAXWV-0/hqdefault.jpg">](https://youtu.be/GnkzvAXWV-0)
+
+
 **Do you feel exposed when you’re singing such personal lyrics aloud?**
 
 Yes, definitely. It’s my therapy, almost. A lot of the songs sound like love songs and some of them obviously are based on relationships. I never really divulge what the lyrics are about, I like to let people interpret them. I’ve had a couple of shows where I’ve burst into tears onstage but that hasn’t happened a lot.
