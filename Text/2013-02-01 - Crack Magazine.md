@@ -1,4 +1,8 @@
 # Daughter
+
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/11ea950cd414b4b48ad62effded8db182b5bd81e/Images/Alexander%20Jordan/daughter-main.png">
+
+
 ## Reluctant stardom beckons for the stunningly talented trio
 
 <u>It’s late November, a weekday afternoon. Crack and the three members of Daughter, along with a small entourage of management and acquaintances, are standing in the turgid rain at the heart of an alarmingly grey Bethnal Green.</u>
@@ -41,7 +45,7 @@ And back to The Sun. The lovely Sun, our shelter. The band seem relaxed with pin
 **E:** Churches have such an atmosphere about them, as soon as you step in … well, I suppose it depends what your views on religion are, but you can be daunted or scared, or just awestruck … every time we’ve played in a church there’s been this atmosphere … I can’t even describe it, just this vibe about the room that feels unlike anything else.
 
 
-http://player.vimeo.com/video/59730356
+[<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/11ea950cd414b4b48ad62effded8db182b5bd81e/Images/415288408_960.jpg">](http://player.vimeo.com/video/59730356)
 
 
 **Why do you think you’ve been so well received in the US?**
@@ -55,6 +59,8 @@ http://player.vimeo.com/video/59730356
 **I:** Lucy Liu and Rob Corddry. Remi was like Rob Corddry’s councillor, reassuring him that his clothes looked good and he’d do a great job.
 
 **R:** Yeah, I’ve got a ticket to Hollywood now.
+
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/11ea950cd414b4b48ad62effded8db182b5bd81e/Images/Alexander%20Jordan/crack_03.png">
 
 **You played Youth, which has been around a year or so. Smother might have been a more obvious choice.**
 
