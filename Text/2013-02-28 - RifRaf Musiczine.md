@@ -1,5 +1,7 @@
 # Muziek die de sfeer bederft
 
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/f9e8f615f94fc6eafc931a95a07ca4b1044d35f0/Images/Eliot%20Lee%20Hazel/mg_5336ps.jpg">
+
 TEKST: MELISSA JANSSEN \| FOTO: ELIOT LEE HAZEL
 
 Met slechts twee ep's onder de arm, kon Daughter afgelopen jaar zowel de Botanique als de Club van Pukkelpop vol laten lopen. Op 18 maart komt de eerste langspeler 'If You Leave' uit, in co-productie met Rodaidh McDonald (The xx, Adele). Diep in de kern van Daughter bevindt zich Elena Tonra (zang). Daarrond zwermen Remi Aguilella, een Franse drummer, en haar vriendje Igor Haefeli, een Zwitserse gitarist. In de Londense muziekschool botsten ze tegen mekaar en explodeerden ze tot Daughter, een band die voorbestemd lijkt om zich te verschuilen in donkere hoekjes. Ze blijken in real life gelukkig veel vrolijker dan ze muzikaal doen uitschijnen.
