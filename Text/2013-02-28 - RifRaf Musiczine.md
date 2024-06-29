@@ -28,7 +28,7 @@ Met slechts twee ep's onder de arm, kon Daughter afgelopen jaar zowel de Botaniq
 ## Evil
 
 **Jullie ep heette 'The Wild Youth'. Zien jullie jezelf zo?** \
-**Elena:** (lacht) "Ik bedoelde met dat nummer eerder het negeren van grenzen in een niet-misdragende manier. Het nummer is een beetje kritiek op het feit dat als je jong bent, dat je niet nadenkt over je daden, zoals een vo/wassener persoon dat doet. Je bent roekeloos, absorbeert alles en vernietigt vaak veel, inclusief jezelf. Zelf zijn we niet zo wild, maar we houden wel van experimenteren en regels breken. Dat wilden we ook doen op het nieuwe album: lets anders dan anders. Dus ja, op die manier zijn we best wel rebels. Maar in het echte leven zijn wij eigenlijk héél braaf." (lacht)
+**Elena:** (lacht) "Ik bedoelde met dat nummer eerder het negeren van grenzen in een niet-misdragende manier. Het nummer is een beetje kritiek op het feit dat als je jong bent, dat je niet nadenkt over je daden, zoals een *volwassener* persoon dat doet. Je bent roekeloos, absorbeert alles en vernietigt vaak veel, inclusief jezelf. Zelf zijn we niet zo wild, maar we houden wel van experimenteren en regels breken. Dat wilden we ook doen op het nieuwe album: lets anders dan anders. Dus ja, op die manier zijn we best wel rebels. Maar in het echte leven zijn wij eigenlijk héél braaf." (lacht)
 
 **Elena, veel nummers gaan over je oude liefdes. Is dat niet vreemd omdat je huidig vriendie, Igor, in de groep zit?**
 
@@ -47,7 +47,7 @@ Met slechts twee ep's onder de arm, kon Daughter afgelopen jaar zowel de Botaniq
 **Elena:** "Ik wil gewoon muziek blijven maken en daarvan genieten. Dat is het belangrijkste. Ik wil gewoon nooit verveeld worden. Nee, dat is niet het woord... Ik wil nooit het gevoel krijgen dat we muziek maken om muziek te maken." \
 **Remi:** "Ik wil de wereld domineren. Ik wil evil zijn over vijf jaar!" \
 **Elena:** "Oké, je mag. Zolang wij nog in je evil-plan passen." \
-**Remi**: "Deal! Over vijf jaar, neem ik de wereld over. Ik bedoel, vijf jaar maximum. Ik reken op twee jaar." \
+**Remi**: "Deal! Over vijf jaar, neem ik de wereld over. Ik bedoel, vijf jaar maximum. Ik reken op twee jaar." 
 
 ON STAGE \
 4 april: Botanique, Brussel (w/ Bear's Den)
