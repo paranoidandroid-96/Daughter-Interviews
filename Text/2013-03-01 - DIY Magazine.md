@@ -1,6 +1,8 @@
 # Sweet Child O'Mine
 ## From Letterman to debut album; Daughter have had quite the year.
 
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/07c73fa88d1fba0382b46158077b3fcb35fb8212/Images/Emma%20Swann/extracted_at_0x22c2.jpg">
+
 Words & Photos: Emma Swann
 
 I remember watching massive bands on it, those big Letterman moments, and then suddenly we're asked to play there: Incredible."
