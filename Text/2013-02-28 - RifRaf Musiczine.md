@@ -21,7 +21,7 @@ Met slechts twee ep's onder de arm, kon Daughter afgelopen jaar zowel de Botaniq
 **Elena:** "Ik begon te schrijven toen ik twaalf was en speelde toen ook toneel. Ik vond het leuk om te doen alsof ik lemand anders ben. (lacht) Het was pas veel later dat ik mijn broer zijn gitaar nam en die twee dingen begon te combineren."
 
 **Iemand stapt een platenwinkel binnen, naar wat moet die persoon vragen om bij Daughter uit te komen?** \
-**Elena:** "Muziek die de steer bederft." (lacht) \
+**Elena:** "Muziek die de sfeer bederft." (lacht) \
 **Igor:** "Iets mooi droevigs. Of droevig moois. Zoiets. Of eerlijk met iets esthetisch. Esthetisch eerlijk." \
 **Remi:** "Of wintermuziek!"
 
