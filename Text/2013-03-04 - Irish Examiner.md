@@ -1,6 +1,11 @@
 # The first lady of nu folk
 
-ELENA Tonra is surprisingly skittish and unsure of herself.
+## ELENA Tonra is surprisingly skittish and unsure of herself.
+
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/aa0b32d2ff8070a35e38c36497e5cc68e7b7d120/Images/Stacey%20Hatfield/Photographyby_StaceyHatfield_Daughter_IMG_5782_D_re.jpg">
+
+Mon, 04 Mar, 2013 - 00:00
+Ed Power
 
 On stage, the Daughter singer is poised and mysterious.
 
