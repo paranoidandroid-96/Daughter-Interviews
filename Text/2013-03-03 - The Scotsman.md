@@ -3,6 +3,8 @@
 By AIDAN SMITH \
 Published 3rd Mar 2013, 00:00 BST
 
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/aa0b32d2ff8070a35e38c36497e5cc68e7b7d120/Images/Stacey%20Hatfield/Photographyby_StaceyHatfield_Daughter_IMG_5782_D_re.jpg">
+
 Silence is golden for eclectic trio Daughter, whose morbidity is strangely uplifting, finds Aidan Smith
 
 LONDON is a great ­music city but because it gets absolutely ­everyone, from the bright-eyed young contenders to the established world stars making just the one UK stop-off, audiences can be blasé if not downright rude. The first time Igor Haefeli heard future bandmate Elena Tonra perform, he couldn’t believe that people would talk so loudly over her songs.
