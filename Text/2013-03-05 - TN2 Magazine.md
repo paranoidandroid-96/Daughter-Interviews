@@ -3,6 +3,8 @@
 Chris Rooke \
 March 5, 2013
 
+<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/fe070750a4cb02872156d982214a2015c6141fa8/Images/Stacey%20Hatfield/tn2.jpg">
+
 WORDS Alana Ryan
 
 It was, by all accounts, a pretty miserable evening. Dark and damp, the rain was drizzling down in a thoroughly Irish fashion. January was excelling at sucking all joy out of the soul, to the extent that had it not been a Daughter gig I probably would have stayed put, tea in hand, hunched as close to the open fire as is humanly possible, muttering my malcontent to all those unfortunate enough to come directly into my vicinity. In retrospect, this would have been a terrible mistake. As concerts go, it was one of the best.
