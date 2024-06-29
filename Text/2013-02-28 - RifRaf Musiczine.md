@@ -9,7 +9,7 @@ Met slechts twee ep's onder de arm, kon Daughter afgelopen jaar zowel de Botaniq
 **Igor Haefeli:** "Ja, daar was het heel cool omdat het publiek zo dichtbij stond. Je kreeg het gevoel dat je in een woonkamer aan het spelen was voor een hoop vrienden. Perfect voor onze muziek dus."
 
 **Elena, die verlegenheid van jou is tegelijk je charme. Wen je wat aan optreden?**
-**Elena Tonra:** "Nee, totaal niet, het blijft zenuwslopend. Tijdens de nummers word ik geabsorbeerd door de muziek, dus dan is dat niet zo erg. Maar ik heb het gevoel dat ik meer contact moet maken met het publiek. Dat blijft een werkpunt! Ik probeer het wel goed te maken door na de shows een babbeltje te doen met de fans. Als ik ze face to face spreek is het blijkbaar makkelijker. Ik vind het jammer dat niet meer bands dat doen. Sommige worden zo pretentieus. Zo wil lik nooit worden."
+**Elena Tonra:** "Nee, totaal niet, het blijft zenuwslopend. Tijdens de nummers word ik geabsorbeerd door de muziek, dus dan is dat niet zo erg. Maar ik heb het gevoel dat ik meer contact moet maken met het publiek. Dat blijft een werkpunt! Ik probeer het wel goed te maken door na de shows een babbeltje te doen met de fans. Als ik ze face to face spreek is het blijkbaar makkelijker. Ik vind het jammer dat niet meer bands dat doen. Sommige worden zo pretentieus. Zo wil ik nooit worden."
 
 **Waar komt Daughter als bandnaam eigenlijk vandaan?**
 **Elena:** "Ik heb geen flauw idee. Ik vond dat het wel past bij de lyrics. Oké, het is wel een heel vrouwelijke naam, misschien vinden de jongens dat wel jammer."
