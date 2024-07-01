@@ -1,8 +1,8 @@
 # Daughter
 
 <p float="left">
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/d0c10fc7ce9d98d7cdf3a81f02fe360bf9f19c8f/Images/Dan%20Wilton/1.jpg" width="267">
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/d0c10fc7ce9d98d7cdf3a81f02fe360bf9f19c8f/Images/Dan%20Wilton/2.jpg" width="600">
+<img src="/Images/Dan%20Wilton/1.jpg" width="267">
+<img src="/Images/Dan%20Wilton/2.jpg" width="600">
 </p>
 
 
