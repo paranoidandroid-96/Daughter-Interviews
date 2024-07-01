@@ -2,7 +2,7 @@
 ## A Fine Smothering of Young Emotion
 
 <p align="center">
-<img src ="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/d28fe3c89c57961a91668b004cbb04d0df9c3f52/Images/Timothy%20Cochrane/daughter_2013.jpg">
+<img src ="/Images/Timothy%20Cochrane/daughter_2013.jpg">
 </p>
 
 Whispering out from the speakers of teenage bedrooms across the land, Daughter’s anthemic ode to the heady rush of ‘Youth’ is fast becoming a Youtube covers sensation. Daughter seem oblivious to the attention, sheltered within the confines of the backstage ahead of a Beirut support slot, huddled against the driving rain outside.
