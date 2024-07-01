@@ -1,6 +1,6 @@
 # All Due Respect Daughter
 ## CoSign: Daughter
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/e060004a979b9d11ae509eca522127c36a7b8850/Images/Elena.jpg">
+<img src="/Images/Elena.jpg">
 
 
 Tony Hardy \
@@ -12,7 +12,7 @@ Alongside the Irish tradition, her parents played the likes of Dylan, Neil Young
 
 Family played another part in Daughter’s development. Sibling rivalry got Tonra interested in learning an instrument, though her first choice, the clarinet, was discarded quickly in favor of the guitar. On the EP, she is also heard wielding an accordion on “Switzerland”, a delightful melange of antique sounds, chimes, and tone poetry. Here Tonra uses her voice purely as an instrument, and the effect is impressive. Elsewhere on the EP, her lyrics are foremost. She admits to different ways of writing depending on the song. “Most of the time, it’s a dark room, a guitar, and anger,” the artist explains. “Other times inspiration comes to you in something you see or read or hear, so I always keep a notebook with me. I think my favorite songs have come from the dark room approach, though I prefer writing when I have a guitar with me because the song forms instantly. Otherwise it’s just poetry that I have to put to music later if it’s from my book.”
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/97ac53bc36c13dff99521c69d36b3f766cbc6022/Images/Jay%20McLaughlin/MCLAUGHLIN_110121_00585-Edit.JPG">
+<img src="/Images/Jay%20McLaughlin/MCLAUGHLIN_110121_00585-Edit.JPG">
 
 There is an open fragility about Daughter’s music but also a stark honesty that is as refreshing as it is engrossing. She is capable of penning a surprisingly caustic song like “Landfill”, which plays with contrary emotions as she wrests control of a doomed relationship. Sentiments veer from “Throw me in the landfill/Don’t think about the consequences/Throw me in the dirt pit/Don’t think about the choices that you make” to “I want you so much, but I hate your guts”. As a counterpoint, there is pure, stripped-bare beauty in the tenderly voiced “The Woods” and a nice blend of sparse verses and pacy choruses in “Candles”.
 
