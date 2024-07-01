@@ -1,6 +1,6 @@
 # Interview - Daughter
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/aa0b32d2ff8070a35e38c36497e5cc68e7b7d120/Images/Stacey%20Hatfield/Photographyby_StaceyHatfield_Daughter_IMG_5782_D_re.jpg">
+<img src="/Images/Stacey%20Hatfield/Photographyby_StaceyHatfield_Daughter_IMG_5782_D_re.jpg">
 
 Dans le cadre du Festival des Inrockuptibles, Sound Of Violence a rencontré le tout jeune groupe Daughter venu donner à cette occasion son premier concert en France. Elena et Igor, membres principaux du groupe et couple à la ville, nous parlent de gris, de photographies et de leur premier album à venir.
 
