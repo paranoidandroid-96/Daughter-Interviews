@@ -1,6 +1,6 @@
 # Daughter
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/11ea950cd414b4b48ad62effded8db182b5bd81e/Images/Alexander%20Jordan/daughter-main.png">
+<img src="/Images/Alexander%20Jordan/daughter-main.png">
 
 
 ## Reluctant stardom beckons for the stunningly talented trio
@@ -45,7 +45,7 @@ And back to The Sun. The lovely Sun, our shelter. The band seem relaxed with pin
 **E:** Churches have such an atmosphere about them, as soon as you step in … well, I suppose it depends what your views on religion are, but you can be daunted or scared, or just awestruck … every time we’ve played in a church there’s been this atmosphere … I can’t even describe it, just this vibe about the room that feels unlike anything else.
 
 
-[<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/11ea950cd414b4b48ad62effded8db182b5bd81e/Images/415288408_960.jpg">](http://player.vimeo.com/video/59730356)
+[<img src="/Images/415288408_960.jpg">](http://player.vimeo.com/video/59730356)
 
 
 **Why do you think you’ve been so well received in the US?**
@@ -60,7 +60,7 @@ And back to The Sun. The lovely Sun, our shelter. The band seem relaxed with pin
 
 **R:** Yeah, I’ve got a ticket to Hollywood now.
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/11ea950cd414b4b48ad62effded8db182b5bd81e/Images/Alexander%20Jordan/crack_03.png">
+<img src="/Images/Alexander%20Jordan/crack_03.png">
 
 **You played Youth, which has been around a year or so. Smother might have been a more obvious choice.**
 
