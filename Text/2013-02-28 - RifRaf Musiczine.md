@@ -1,6 +1,6 @@
 # Muziek die de sfeer bederft
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/f9e8f615f94fc6eafc931a95a07ca4b1044d35f0/Images/Eliot%20Lee%20Hazel/mg_5336ps.jpg">
+<img src="/Images/Eliot%20Lee%20Hazel/mg_5336ps.jpg">
 
 TEKST: MELISSA JANSSEN \| FOTO: ELIOT LEE HAZEL
 
