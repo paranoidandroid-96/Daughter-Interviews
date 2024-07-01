@@ -4,7 +4,7 @@ The Temple News sits down with Daughter. The band played in Philly earlier this 
 
 01 November 2012 Victoria Marchiony
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/efde2ba9e3a917397db2991edfacee0e177b7ac4/Images/DSCN1463-web.jpg">
+<img src="/Images/DSCN1463-web.jpg">
 
 **VICTORIA MARCHIONY / TTN**
 
