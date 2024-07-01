@@ -5,7 +5,7 @@ Sun 24 Feb 2013 00.04 GMT
 
 The spooky pop three-piece on playing for David Letterman and why they don't try too hard to be heard
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/6cb1f771b4ce8852d869e3ea98b7bb3ff840d834/Images/168378701.jpg">
+<img src="/Images/168378701.jpg">
 
 Daughter at the Slaughtered Lamb pub, Clerkenwell, London. L-R: Remi Aguilella, Elena Tonra and Igor Haefeli. Photograph: Richard Saker
 
