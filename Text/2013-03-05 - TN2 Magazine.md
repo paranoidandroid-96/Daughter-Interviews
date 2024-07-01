@@ -3,7 +3,7 @@
 Chris Rooke \
 March 5, 2013
 
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/fe070750a4cb02872156d982214a2015c6141fa8/Images/Stacey%20Hatfield/tn2.jpg">
+<img src="/Images/Stacey%20Hatfield/tn2.jpg">
 
 WORDS Alana Ryan
 
