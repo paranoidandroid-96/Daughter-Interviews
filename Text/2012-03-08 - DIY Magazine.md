@@ -4,7 +4,7 @@
 By Lauren Down on 8th March 2012
 
 <p align="center">
-<img src="https://github.com/paranoidandroid-96/Daughter-Interviews/blob/cc4e261b5c36ac608a768b2e80deeab08812d8e9/Images/Stacey%20Hatfield/daughter2600.jpg">
+<img src="/Images/Stacey%20Hatfield/daughter2600.jpg">
 <p/>
   
 “I used to have this book when I was younger,” Elena Tonra explains over blaring coffee shop jingles, “but I couldn’t play an instrument or anything so it was just like a book of poems that I used to sing from. I mean to no one else, just to myself and well I was not young enough for this not to be embarrassing.” A charming, unassuming songstress with a wry sense of humour this seems like the only possible way Elena’s musical persona could have begun: tentatively and honestly.  
