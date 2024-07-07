@@ -2,6 +2,8 @@
 
 Spawning from Elena Tonra's solo work, London trio Daughter is makin serious waves on the back of debut record If You Leave. Brendan Telford speaks with the singer about honest amidst the atmospherics.
 
+<img src="/Images/Stacey%20Hatfield/Photographyby_StaceyHatfield_Daughter_IMG_5782_D_re.jpg">
+
 It is hard to fanthom the level of anticipation that seems to have coalesced around If You Leave, the debut record for Daughter, a trio that have taken the spectral skeleton of traditional pop and folk compositions and weaved a darker, atmospheric world for themselves with astonishing results. The rise and fall of the gossamer guitar lines by Igor Haefeli and understated yet pivotal drumming of Remi Aguilella provide this esoteric sonic backdrop, yet everything hinges on the ethereal, haunted vocals of Elena Tonra. Embodying both fragility and power, Tonra is a beguiling presence, imbuing Daughter with a mesmeric countenance that is hypnotic and alluring. The fact that a band without a debut record could find themselves playing on The Late Show With David Letterman is a defining signifier of what Daughter is capable of.
 
 If You Leave has been heralded in the press as a long time coming, what with the brewing adulation garnered from their previous EPs, His Young Heart and The Wild Youth, feeling like the calm before the storm. Yet The Wild Youth came out at the tail end of 2011, and the pressure of releasing a longplayer has been something that Tonra has been attuned to yet assuages that there were no problems leading up to it.

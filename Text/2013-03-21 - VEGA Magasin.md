@@ -18,6 +18,8 @@ Daughters musik er funderet i Elenas tekster og startede i sin tid som hendes so
 
 Tilblivelsen af trioens første fuldlængdealbum, der udkommer 18. marts, var meget anderledes end med de to ep'er. Elena fortæller: »Igor og jeg tog til et nedlagt kapel ude pa landet for at slippe vak fra internet og telefoner og vare isolerede et sted, vi ikke kendte, så vi kunne koncentrere os kun om musikken. Det var starten pả albummet.« Men senere blev indspilningsprocessen meget opdelt, siger Elena. Bandet skulle nemlig kombinere turnéer med dage i studiet. »Det gjorde, at vi fik tid til at tænke over musikken, mens vi var på turné, men det var også forvirrende, så jeg ved ikke, om det var en positiv eller negativ proces. Det ved jeg nok først, når vi har prøvet at lave endnu et album på en helt anden måde.«
 
+<img src="/Images/Eliot%20Lee%20Hazel/extracted_at_0x875.jpg">
+
 ## PUBLIKUMS REAKTIONER
 
 På baggrund af blot de to ep'er og en optraden pa Roskilde Festival, blev Daughters koncert 1 Lille VEGA hurtigt udsolgt, og bandet har i det hele taget fäet stor succes hurtigt: »Det er mere, end vi havde forventet eller dromt om,« siger Elena overvaldet og tilfojer: »Især sangen "Youth" er blevet meget flot modtaget, og det var en stor overraskelse for os. Til shows horer vi folk juble, när vi introducerer sangen. Det er meget cool! Jeg kan stadig ikke vanne mig til det... Det er surrealistisk, nar folk synger med. Jeg husker Roskilde Festival, hvor vi tankte: "Det her er sindssygt",", når man horte s mange synge med. Jeg tænkte: "Hvordan kan I kende de her ord?!"«griner Elena.
@@ -28,3 +30,4 @@ På baggrund af blot de to ep'er og en optraden pa Roskilde Festival, blev Daugh
 
 Elenas tekster er meget personlige, men hun har ikke noget imod at synge dem live foran publikum: »Jeg deler meget med folk gennem sangene, men jeg foler, det bliver godt taget imod. Det betyder meget. Især när folk synger med, sà foler jeg, de siger, at de ogsa foler sadan nogle gange. Det betyder, at jeg ikke er alene med det - og at jeg ikke er sindssyg,« ler Elena. Trioen er i det hele taget rorte over, at publikum er der, fortaller hun: »Jeg foler mig meget stottet og velkommen hos publikum,« og tilfojer: »Det lader til, at de virkelig gerne vil have, at det gar os godt, og ikke bare venter pà, at vi fucker noget op.« * 
 
+<img src="/Images/Eliot%20Lee%20Hazel/daughter.jpg">

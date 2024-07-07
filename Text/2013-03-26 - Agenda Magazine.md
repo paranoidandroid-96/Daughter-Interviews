@@ -3,6 +3,8 @@
 
 Nicolas Alsteen | © Agenda Magazine | 29/03/2013 11.38u
 
+<img src="/Images/Eliot%20Lee%20Hazel/daughter.jpg">
+
  (© Eliot Lee Hazel)
 
 Daughter, a cosmopolitan trio that emerged in the shade of Big Ben, has been exciting speculators over the last few months. A few impressive tours de force, intelligently made available on the Web, have seen the English group win music-lovers’ hearts and attract the attention of the big international labels. Having finally signed with the independent 4AD label (home to The National and Bon Iver), Daughter has now released If You Leave, a collection of ten melancholy, sophisticated songs that belongs on your shelves somewhere between The xx and Sharon Van Etten. Every track on this first album has a one-word title: “Youth”, “Still”, “Winter”, “Touch”, etc. A touch that is fairly symptomatic of music that is at once concise and minimal.
@@ -12,6 +14,8 @@ Daughter, a cosmopolitan trio that emerged in the shade of Big Ben, has been exc
 
 **Daughter is made up of an Englishwoman, a Swiss man, and a Frenchman. Is that international alliance a key trump card for the group?**
 **Igor Haefeli:** It helps to strengthen Daughter’s unique character. Our individual cultural backgrounds are bound up with the countries we come from. The way we see the world comes from three different angles. Collectively, however, we are definitely an English group. I don’t think Daughter could have come into existence in Switzerland, for example. We are seen, and rightly so, as a London band. This is where we met. It’s here that we felt like making music together. This city is inseparable from our story.
+
+[<img src="https://i.ytimg.com/vi/aAixIYVIsNY/sddefault.jpg">](https://www.youtube.com/watch?v=aAixIYVIsNY)
 
 **Your songs are always on the edge between happiness and sadness. What adjective best describes your music?**
 **Remi Aguilella:** The word “dark” seems appropriate to me. But we’re not sad people. Our approach to things owes a lot to melancholy. It is a feeling that goes well with our music. And with our personalities.
