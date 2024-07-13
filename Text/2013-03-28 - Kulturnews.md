@@ -1,6 +1,6 @@
 # Zum Sterben schön
 
-<img src="Images/Eliot Lee Hazel/daughter_5214_eliot_lee_hazel_small.jpg">
+<img src="/Images/Eliot Lee Hazel/daughter_5214_eliot_lee_hazel_small.jpg">
 
 Foto: Eliot Lee Hazel
 
