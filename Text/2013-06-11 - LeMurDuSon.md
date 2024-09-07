@@ -53,4 +53,4 @@ Nous allons beaucoup tourner et peut-être trouver quelques jours libres pour co
 
 [Retrouvez la version originale en anglais via ce lien](https://www.dropbox.com/s/cidelnw0o16yvtl/Interview%20Igor%20Haefeli%20(Daughter).doc)
 
-https://www.youtube.com/watch?v=uUWrcFpmI5U
+[<img src="https://i.ytimg.com/vi/uUWrcFpmI5U/sddefault.jpg">](https://www.youtube.com/watch?v=uUWrcFpmI5U)
