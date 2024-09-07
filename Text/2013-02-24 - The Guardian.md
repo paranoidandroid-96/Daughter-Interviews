@@ -1,6 +1,8 @@
 ## Interview
 # One to watch: Daughter
-Tom Lamont \
+<img src="/Text/Resources/Tom-Lamont.png" width=15% height=15%>
+
+Tom Lamont\
 Sun 24 Feb 2013 00.04 GMT
 
 The spooky pop three-piece on playing for David Letterman and why they don't try too hard to be heard
@@ -22,6 +24,8 @@ Tonra, who writes their lyrics, is in a relationship with Haefeli. "I admired hi
 Any more said on this point, I suspect, might risk the childish energy that the band strive for. Their two EPs to date were called The Wild Youth and His Young Heart and both had pictures of Tonra as a kid on the cover. Her lyrics tend to deal with first lessons, with unworldliness, often sung in a vulnerable near-whisper. I was particularly taken with last year's skin-prickling track, Medicine, which explored naive decision-making.
 
 The band's name has a certain resonance, too, but Tonra says it was adopted because she had done some "awful solo stuff" before aligning with Haefeli and Aguilella and she wanted to mark a distinction. "I didn't want it to be my name – me and two guys in the background. This is a collaboration."
+
+[<img src="https://i.ytimg.com/vi/qdA8Sts4RIY/sddefault.jpg">](https://www.youtube.com/watch?v=qdA8Sts4RIY)
 
 Last year, Daughter were asked to appear on Late Show With David Letterman (3.5 million nightly viewers) ahead of a US tour. It was a hardly plausible offer for such an untried band – the fact that Daughter share management links with Mumford & Sons might have helped – but the trio weren't keen. "We didn't even have an album written yet, so it felt like burning a lot of stages," says Haefeli, who speaks excellent English, albeit with an endearing habit of muddling our cliches.
 
