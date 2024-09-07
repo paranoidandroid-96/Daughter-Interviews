@@ -5,7 +5,7 @@
 8 minutes \
 Écrit par Diane le 28.03.2013
 
-*** Daughter, comme son nom ne l’indique pas, est un trio composé d’une Anglaise (Elena), d’un Français (Remi) et d’un Suisse (Igor). Qui ont en commun un amour des mélodies mélancoliques et des atmosphères ouatées. Et qui viennent de sortir leur premier album « If You Leave ». On les a rencontrés le mois dernier à Paris. Récit. ***
+*Daughter, comme son nom ne l’indique pas, est un trio composé d’une Anglaise (Elena), d’un Français (Remi) et d’un Suisse (Igor). Qui ont en commun un amour des mélodies mélancoliques et des atmosphères ouatées. Et qui viennent de sortir leur premier album « If You Leave ». On les a rencontrés le mois dernier à Paris. Récit.*
 
 C’est avec une belle régularité que Daughter livre chaque année le fruit de leur travail : succédant aux EPs « His Young Heart » (2011) et « The Wild Youth » (2012), dont certains morceaux sont en écoute sur soundcloud, « If You Leave » vient de voir le jour, et le moins qu’on puisse dire, c’est que c’est un album qui tient ses promesses. En toute modestie, le trio déroule le fil d’une pop-folk apaisante et fragile, d’une pureté presque irréelle. Alors on sait bien que c’est insensé, mais on a tout d’un coup envie d’être debout sur le toit d’un train lancé à pleine vitesse, sous une pluie fine, en équilibre.
 
@@ -31,9 +31,7 @@ Même si Youth est toujours présente sur l’album, « If You Leave » marque l
 
 C’est aussi une manière de ne pas trop en dire, « de suggérer quelque chose avec un mot, de laisser le reste libre, car le sens des chansons doit rester ouvert à ceux qui écoutent« , précise Igor. Toujours avec l’idée de laisser chacun s’approprier la musique comme il le souhaite, le groupe a créé sur leur site un espace libre où on peut télécharger chaque piste réelle de Youth (ainsi que les 4 pistes vidéos des différentes caméras lors de la captation de leur live au Assembly Home). Remi explique : « On est très intéressés de voir ce que les gens peuvent faire de notre musique. Et si certains ont envie de faire des remixes, autant qu’ils bossent à partir d’un fichier qui n’est pas corrompu ! » Igor approuve : « J’ai toujours été intéressé par la culture du remix, par l’idée de pouvoir recycler la musique, la transformer. Je suis vraiment content qu’on puisse donner cette opportunité à des gens, alors qu’on n’a jamais demandé à quelqu’un de faire un remix officiel. » A écouter ci-dessous, un remix à l’inspiration house, délicieux.
 
-https://soundcloud.com/allefarben/daughter-youth-alle-farben
-
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/67273378&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/allefarben" title="Alle Farben" target="_blank" style="color: #cccccc; text-decoration: none;">Alle Farben</a> · <a href="https://soundcloud.com/allefarben/daughter-youth-alle-farben" title="Daughter - Youth (Alle Farben remix)" target="_blank" style="color: #cccccc; text-decoration: none;">Daughter - Youth (Alle Farben remix)</a></div>
+[<img src="https://widget.sndcdn.com/assets/images/logo-200x120-3190df52.png">](https://soundcloud.com/allefarben/daughter-youth-alle-farben)
 
 On espère que vous avez déjà vos places pour leur concert au Café de la Danse le 19 avril prochain dans le cadre du Festival Clap Your Hands, parce qu’il est déjà complet. Mais sinon pas d’inquiétude, c’est sûr, ce ne sera pas la dernière fois qu’ils se produiront à Paris.
 
