@@ -2,7 +2,7 @@
 
 **Words by Scenewave Australia - Published on June 18, 2013**
 
-<img src="/Images/Jay McLaughlin/">
+<img src="/Images/Jay McLaughlin/MCLAUGHLIN_110121_00633-Edit.JPG">
 
 Judging by Elena’s soulful and depressed lyrics, you’d expect her to be a sad, fragile English girl. However, upon chatting to her, I found her to be delightful! Slightly nervous, chatty and full of laughs – expect the unexpected not only from Elena, but from Daughter.
 
@@ -33,7 +33,7 @@ I don’t really know… I wasn’t a very musical kid, my brother was the one w
 You did a spectacular cover of Daft Punk’s “Get Lucky” soon after its release, are you a huge fan? What did you think of the new album?
 Yeh they’re great. It kind of came up by chance… we were thinking of a well known song to cover, like Timberlake or Rhianna or something. Remi came in with this song, and none of us had ever thought of covering it, just though that it was a really awesome song. And then one of us just thought, should we just jam with it, and we did and ended up recording it. It’s a bit crazy, a lot of people have watched that YouTube video, which is really strange, we only put it up thinking we’d get a couple of views.
 
-http://www.youtube.com/embed/T5Cp55MvX54?feature=oembed
+[<img src="https://i.ytimg.com/vi/T5Cp55MvX54/maxresdefault.jpg">](https://www.youtube.com/watch?v=T5Cp55MvX54)
 
 How’s the London scene, do you get out and party much?
 I don’t really go out much at the moment, geared more towards touring and stuff. But I had an great evening this week, because we’d just come back from doing a couple of festivals in the states, so we had nice night in with friends. I met some very funny people. We went to this bingo night that was hosted by basically a transvestite that made the most incredible shoes haha. I was so jealous!
