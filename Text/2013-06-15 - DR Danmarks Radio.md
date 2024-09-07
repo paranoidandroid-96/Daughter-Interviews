@@ -1,7 +1,10 @@
 # Populære Daughter dyrker ensomheden
 ## Daughter er drevet af ensomhed, men elsker også dansk publikum for at bekræfte dem i, at de ikke er alene.
 
+<img src="/Text/Resources/asset.dr.jpeg" align="left">
+
 Daughters forsanger Elena Tonra finder sin inspiration i ensomheden. Men hun elsker også at optræde - som her fredag på Northside 2013. (Foto: © Flemming Krogh, Scanpix)
+<br clear="left"/>
 
 AF Peter Krogh Andersen \| 15. jun 2013 \| Mere end 30 dage gammel
 
