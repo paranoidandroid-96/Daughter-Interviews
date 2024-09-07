@@ -1,6 +1,8 @@
 # Daughter
 ## Originating with the eloquent Elena Tonra, the three-piece Daughter have emerged from nowhere to countrywide plaudits. Charlotte Gay went back stage with the trio before their Bournemouth gig
 
+<img src="/Backup/Audio/2013/2013-05-19 - Charlotte Gay/daughter-ben-tyler.png">
+
 The line for Daughter snakes around the front of The Old Fire Station, one of the early signs that their popularity has exploded in recent months. Catching up on the last night of their UK tour before they start the festival season, Daughter certainly haven’t been riding on the coattails of anybody to become as notable as they have. 
 
 Their music is atmospheric, haunting, but also quite melancholic. Elena’s song-writing is rooted in torment and the music is deeply intimate. Lyrics like Smother’s ‘I sometimes wish I’d stayed inside my mother’ or Landfill’s ‘don’t think about the consequences, throw me in the dirt pit’, it’s clear they’re written from a troubled place. Could this just be teenage angst, or did it ever concern her families or friends when first listening?
