@@ -3,8 +3,8 @@
 
 Hester Carvalho		3 april 2013		Leestijd 2 minuten
 
-<img src="/Images/Rien Zilvold/1687915.jpg">
-amsterdam folk groep daughter foto rien zilvold 
+<img src="/Images/Rien Zilvold/1687915.jpg"> 
+<p align="right"> amsterdam folk groep daughter foto rien zilvold </p>
 
  Zangeres Elena Tonra is het belangrijkst in de band Daughter, zegt gitarist Igor Haefeli. „Zij zingt. Als zij het ergens niet mee eens is, is het niet goed.”
 
@@ -34,7 +34,7 @@ Tonra buigt haar hoofd naar voren. „In mijn liedjes richt ik me op de duistere
 Hester Carvalho		4 april 2013		Leestijd 2 minuten 
 
 <img src="/Images/Rien Zilvold/1688082.jpg">
-amsterdam folk groep daughter foto rien zilvold 
+<p align="right"> amsterdam folk groep daughter foto rien zilvold </p>
 
 Z angeres Elena Tonra is het belangrijkst in de band Daughter, zegt gitarist Igor Haefeli. „Zij zingt. Als zij het ergens niet mee eens is, is het niet goed.”
 
