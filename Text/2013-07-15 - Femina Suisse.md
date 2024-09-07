@@ -3,10 +3,19 @@
 
 Muriel Chavaillaz \
 15 juil. 2013
+<p float="left">
+<img src="/Images/Perlyphotography/img_4514.jpg" width=65%> 
+</p>
 
 
-<img src="">
+<p align="right">  
+<img src="/Images/Perlyphotography/img_4528.jpg" width=15%>  <img src="/Images/Perlyphotography/img_4622.jpg" width=15%> </p>  
+<p align="right">  
+<img src="/Images/Perlyphotography/img_4626.jpg" width=15%>  <img src="/Images/Perlyphotography/img_4633.jpg" width=15%> </p>
+<p align="right">  
+<img src="/Images/Perlyphotography/img_4645.jpg" width=15%>  <img src="/Images/Perlyphotography/img_4656.jpg" width=15%> </p>  
 
+  
 Découvrez les images du concert d'Igor, Elena et Rémi (de gauche à droite) en visionnant la galerie.© Perlyphotography.com
 
 FEMINA: Elena, que pensez-vous de Montreux?
