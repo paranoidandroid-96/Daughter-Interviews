@@ -26,6 +26,8 @@ BY BENJAMIN COOPER
 # DAUGHTER
 BY BENJAMIN COOPER
 
+<img src="/Images/Eliot Lee Hazel/daughter_beat.jpg">
+
 **Elena Tonra has always played it her way. ‘’I never went to university,’’ Tonra says. ‘’I never even considered it. I knew from the start that music was my thing. It was almost like I didn’t want to do anything else, or even entertain anything else. I finished school, and went to music college, and then I ended up doing music, all the time.”**
 
 The songwriter and leader of English band Daughter is the ﬁrst to admit surprise at having become a frontwoman. “Both of my parents are very shy people, to the point where they might even be described as antisocial,’’ Tonra says. ‘’I deﬁnitely got the shy gene. I mean, I’m always blabbering, but that probably helps with writing. Maybe.”
