@@ -2,6 +2,8 @@
 ## Beguiling 4AD newcomers speak out...
 Robin Murray / Features / 08 · 04 · 2013
 
+<img src="/Images/Eliot Lee Hazel/daughter_5214_eliot_lee_hazel_small.jpg">
+
 “I think the best way to explain it is to just go from the beginning…”
 
 Daughter’s story is engaging simple, yet deceptively complex. A trio, the group owe their origins to singer Elena Tonra, who set her sights on fellow music student Igor Haefeli. Gigs, writing sessions, studio sojourns followed before Remi Aguilela came on board and allowed the group’s vision to really come into focus.
@@ -16,7 +18,7 @@ A beautiful artefact to listen to, Daughter’s debut album ‘If You Leave’ d
 
 As sumptuous on the ear as ‘If You Leave’ undeniably is, there are unsettling elements at play. Daughter know when to cut deep, with Elena Tonra’s lyrics often pointing towards something quite painful. “That’s totally herself. She needs a lot of space for that” Igor insists. “It’s quite interesting because basically when inspiration sparks, the lyrics arrive in one block and generally won’t be re-written or anything, it’s just there. It works very much that way, we don’t really discuss the lyrics that much. It’s very much her thing.”
 
-https://www.youtube.com/watch?v=MbCeyb9okac
+[<img src="https://i.ytimg.com/vi/MbCeyb9okac/sddefault.jpg">](https://www.youtube.com/watch?v=MbCeyb9okac)
 
 One thing the band are free to discuss, however, is there fondness for one word titles. “The thing is, it started really with the first EP – three of the four songs were one word titles. We decided to further that with ‘Wild Youth’ and then again on the album. I don’t know if we’ll stick to it forever” the guitarist says. “There are loads of reasons behind it, but Elena always writes the set list on her hand so it’s always one word, just to keep space. That’s a practical reason. Also, there’s this idea – which is more down to Elena – that she doesn’t like explaining the lyrics to her songs, and she wants to keep the meaning open to interpretation. So the idea is to leave the meaning that little bit more open, because again it’s like a picture, if you have one word to it then you’re pointing in a certain direction but you’re not defining it as much as with a longer title.”
 
