@@ -1,0 +1,9 @@
+Wonderland
+
+https://radio1.be/luister/select/wonderland/daughter-over-hun-langverwachte-nieuwe-album-stereo-mind-game
+
+mpd
+
+https://ondemand.vrtcdn.be/content/vod/aud-9841fdc9-c8ef-42ee-9e3f-9966f38d41b6-CDN_2/aud-9841fdc9-c8ef-42ee-9e3f-9966f38d41b6-CDN_2_nodrm_f0be206e-6716-41a1-b7bf-882e0425870d.ism/.mpd?filter=%28%21%28type%3D%3D%22audio%22%26%26FourCC%21%3D%22AACL%22%29%29
+
+yt-dlp mpdlink
