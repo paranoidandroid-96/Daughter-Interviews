@@ -1,9 +1,10 @@
 ## Interview
 # One to watch: Daughter
-<img src="/Text/Resources/Tom-Lamont.png" width=15% height=15%>
+<img src="/Text/Resources/Tom-Lamont.png" width=15% height=15% align="left">
 
 Tom Lamont\
 Sun 24 Feb 2013 00.04 GMT
+<br clear="left"/>
 
 The spooky pop three-piece on playing for David Letterman and why they don't try too hard to be heard
 
