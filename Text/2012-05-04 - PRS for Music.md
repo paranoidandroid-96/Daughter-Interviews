@@ -2,9 +2,12 @@
 
 Daughter is Elena Tonra, Igor Haefeli & Remi Aguilella. They write dark, ethereal & beautiful songs. They've taken some time out to have a quick 30 second chat to us. 
 
+---
+<img src="/Text/Resources/anitaawbi.png" align="left"> \
+By **Anita Awbi**		4 May 2012		**2 min read** 
+<br clear="left"/> 
 
-By Anita Awbi		4 May 2012		2 min read
-
+--- 
 
 **What inspired your latest EP?** \
 Elena: I suppose the idea of Youth is a very strong theme. I think I personally have a hard time dealing with the idea of growing up. The songs are mainly about being young and fearing death... And lost love... and hatred... All the happy themes! \
