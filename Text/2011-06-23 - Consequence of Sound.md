@@ -2,9 +2,10 @@
 ## CoSign: Daughter
 <img src="/Images/Elena.jpg">
 
-
-Tony Hardy \
+<img src="/Text/Resources/tonyhardy.png" height=10% width=10% align="left"> \
+**Tony Hardy** \
 June 23, 2011 | 2:18pm ET 
+<br clear="left"/>
 
 Is it just me, or are indie female singer-songwriters getting younger all the time? While not quite at the veteran-of-two-albums stage like, say, Laura Marling or Alessi’s Ark, Elena Tonra, aka Daughter, is busy making waves at age 21 with her debut EP, His Young Heart. The self-released four-tracker follows a series of demos she put out last year through her social network pages. North London-raised Tonra comes from a musical family, often a key link in the development of raw talent. “My family are music lovers, so music was a big part when growing up,” the artist says. “My grandfather would sing Irish folk songs all the time in the kitchen, and my whole family would gather around to listen. He was a great performer, and everyone really loved him, so I think he inspired me a lot when I was little.”
 
@@ -18,7 +19,11 @@ There is an open fragility about Daughter’s music but also a stark honesty tha
 
 The fact that each track on the EP shows a different side to Daughter is underlined by her attitude to labels in music. “I think music should speak for itself. Of course, I have been labeled as folk, and I suppose it is folk in a way. But it’s not any one thing, and I don’t want to limit myself to one genre. I think we have the basis of folk, a sort of storytelling narrative to the songs, but I want to branch out and experiment with the sound. Thankfully, I have Igor (Haefeli–her guitarist partner) in Daughter, who is a great producer and creative brain and listens to so many different types of music that his head is exploding with weird sounds.”
 
+<img src="/Text/Resources/hisyoungheart1500x1500.jpg" height=22% width=22% align="left">
+
 Those disparate influences come through in her recorded work. Tonra concedes that it can be quite flattering to be compared to an artist she likes, while it’s hilarious if that same parallel is drawn with someone she despises. So far, names like Bat For Lashes, The XX, Jonsi Birgisson, and Laura Marling have been touted. No belly laughs should be heard there, then. On “Candles”, for me, she is reminiscent of the UK’s Gabby Young whose own recent record deal sees an impending US launch. Tonra, on the other hand, does not harbor a strong ambition to be signed. “The industry side of music doesn’t really interest me too much. I think as long as people are listening I’ll keep creating. I’d need to be on a label that I trust and that really loves our music; otherwise we’ll be just another band on a list,” she confides.
+
+<br clear="left"/>
 
 Like most of her indie contemporaries, compromises for commercial success are not on the agenda either, although the dressing-up box does hold some appeal for the girl in Daughter. “I’m usually a scruffy old thing, yet fashion is something that intrigues me. I love clothes, and I love make-up,” she goes on to say. “I wouldn’t start wearing fetish outfits like most female artists are doing at the moment, though!”
 
