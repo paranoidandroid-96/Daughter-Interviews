@@ -1,5 +1,7 @@
 # Daughter : fille prodige
 
+<img src="/Images/Stacey Hatfield/468740_543911952288132_1177836954_o.jpg">
+
 par Ondine Benetier \
 Publié le 3 avril 2013 à 16h30 \
 Mis à jour le 15 mars 2021 à 23h03
