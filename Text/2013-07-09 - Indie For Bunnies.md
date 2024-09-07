@@ -2,7 +2,7 @@
 
 di Marta Bacigalupo 	9 Luglio, 2013 
 
-<img src="">
+<img src="/Text/Resources/elena-tonra-youtube.jpg">
 
 Già  noto ai lettori di IndieForBunnies, Daughter è il progetto londinese fondato da Elena Tonra, ormai diafana icona di stile indie, evolutosi in un trio formato da Igor Haefeli e Remi Aguilellale.
 
