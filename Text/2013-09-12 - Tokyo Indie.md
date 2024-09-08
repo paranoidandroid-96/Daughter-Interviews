@@ -1,6 +1,6 @@
 # Daughter – Interview
 
-<img src="/Images/TimKnol">
+<img src="/Images/daughter1tim.jpg">
 
 **At this year’s Fuji Rock Festival we were very excited about catching indie-folk act Daughter in the Red Marquee. Formed in 2010 by their beyond-cool front-woman Elena Tonra, they stole the spotlight with their cover of Daft Punk’s “Get Lucky” on BBC Radio 1’s live lounge. The subsequent Youtube video went viral, clocking 3.3 million views and serving as a springboard for the band to get more recognition for their own emotive brand of heartfelt melodies and mind-encompassing ethereal folk. We were lucky enough to have time to fire a few questions to Elena to find out a little more about the band.**
 
@@ -40,7 +40,8 @@ September 12, 2013
 
 # Daughter インタビュー
 
-<img src="">
+<img src="/Images/daughter1tim.jpg">
+
 **今年のレッドマーキーでインディフォークのバンドDaughter のステージを見るのをとても楽しみにしていた。2010年最高にクールなボーカリストElena Tonraを中心に結成され、BBC Radio 1のライブラウンジでは、Daft Punk“Get Lucky”のカバーでスポットライトを集めた。そしてYoutubeでは330万の再生回数を挙げ、それを機に、持ち前の感情あふれ心に響くメロディー、自然に流れ込む空気のような音、フォークソング界で一躍有名なった。**
 
 **幸運にもボーカルのElenaにインタビューする機会を得た私達は、バンドについていくつか質問をしてみた。**
