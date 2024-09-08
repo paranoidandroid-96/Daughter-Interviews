@@ -40,7 +40,7 @@ Often, musically, the idea will come from her because she needs something to sta
 
 Watch: Daughter – Amsterdam (Live In Los Angeles)
 
-https://www.youtube.com/watch?v=albvgSKfgSc
+[<img src="https://i.ytimg.com/vi_webp/albvgSKfgSc/maxresdefault.webp">](https://www.youtube.com/watch?v=albvgSKfgSc)
 
 **MF:** You did co-produce the songs with Rodaidh McDonald (The xx, Adele). What was it like to share production duties after having had such an integral part in the songwriting process?
 
