@@ -12,3 +12,8 @@ Nein, eigentlich nicht. Es ist ja auch verständlich, denn am Anfang war ja wirk
 
 **Du bist ja auch mit Elena zusammen. Erschrickst du manchmal, wenn sie so herzzerfetzend traurige Texte schreibt?**
 (lacht) Nein. Das ist eben eine dunkle, melancholische Seite, die sie da auslebt und die wohl jeder Mensch hat. Ich weiß ja, dass sie auch eine fröhliche, lustige, offene Person ist.
+
+<p float="left">
+<img src="/Backup/2013/2013-11-04/page_1.png" height=48% width=48%> 
+<img src="/Backup/2013/2013-11-04/page_19.png" height=48% width=48%>
+</p>
