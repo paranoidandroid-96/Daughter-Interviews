@@ -13,10 +13,11 @@ Hende og de to bandmakkere, guitarist Igor Haefeli og trommeslager Remi Aguilell
 Siden hun udvidede Daughter-projektet til en trio for knapt to år siden, har deres sørgmodige folk-klingende melodier modtaget støt voksende opmærksomhed, der i første omgang fangede pladeselskabet Communions interesse og resulterede i ep-udgivelsen ‘The Wild Youth’ i 2011 og efterfølgende det anerkendte pladeselskab 4AD, der siden udgav debutalbummet.
 
 
-https://www.youtube.com/watch?v=50QOWi7nqQw
+[<img src="https://i.ytimg.com/vi/50QOWi7nqQw/sddefault.jpg">](https://www.youtube.com/watch?v=50QOWi7nqQw)
+
 Lyt til hele Daughters debut-ep ’The Wild Youth’.  
 
-**Forulykkede teenageforelskelser**
+**Forulykkede teenageforelskelser** \
 Men selv om sangerinden ikke lyder sky i telefonen, så har genertheden og en knugende ensomhed klæbet sig til hende, siden hun var en helt lille pige, og dannet rammen om et poetisk tekstunivers, der har været et holdepunkt i Elenas tilværelse i mere end halvdelen af hendes liv.
 
 Opvæksten i et småkedeligt forstadskvarter i det nordlige London var ellers tryg og fuld af tætte familiebånd, men Elena kom til at føle sig fuldstændigt alene, da hun som 11-årig flyttede fra primary school til secondary school og pludselig skulle forsøge at finde sig til rette blandt fremmede mennesker. Det blev noget af en prøvelse for den følsomme og generte pige, der ikke passede ind. Så de første teenageår blev i stedet brugt inde på værelset, hvor hun begyndte at fylde notesbøger med digte og tekstbidder. Både om ensomheden og om forsigtige, uforløste eller forulykkede teenageforelskelser.
@@ -29,10 +30,10 @@ Men da broderen flyttede hjemmefra for at gå på universitet og efterlod guitar
 
 Interviewet fortsætter på næste side.
 
-<img src="/Images/Stacey Hatfield/">
+<img src="/Images/Stacey Hatfield/tn2.jpg">
 Daughter-Elena TonraX
 
-**Stiv af sceneskræk**
+**Stiv af sceneskræk** \
 Det var først, da hun som 19-årig lidt tilfældigt og uden nogen bestemt retning i sigte skrev sig op til et kursus i sangskrivning på det universitet, hvor hun gik, at Elena langsomt indså, at musikken ikke bare skulle være en hobby.
 
 Det var også på sangskrivningskurset, at Elena mødte kæresten og bandmakkeren Igor Haefeli. En dag da hun skulle optræde med Daughter-projektet, bad hun ham om at hjælpe til på scenen, så hun ikke skulle stå ansigt til ansigt med sceneskrækken alene.
@@ -45,11 +46,11 @@ Forholdet til Igor er også den primære grund til, at Daughter ikke længere ba
 
 »Det har betydet meget for mig at finde nogle mennesker, jeg kan stole på, som ikke dømmer mig, og som jeg føler, jeg har en tilknytning til. Før det var jeg virkelig ensom. Jeg er stadig ekstremt ensom inde i mit hoved og med mine tekster, men jeg befinder mig klart i en bedre sindstilstand i dag, end jeg gjorde for to år siden«.
 
-**Brutal poesi**
+**Brutal poesi** \
 Selv om melodikompositionerne ikke er nær så enkle og beskedne, som på Elenas første spæde soloforsøg, er teksterne på ‘If You Leave’ akkurat lige så følelsesmættede, som Elena hele tiden har skrevet dem. En blanding af trist poesi og grusom, næsten blodig, hårdhed. I ‘Landfill’ er det eksempelvis ikke bare den velkendte hjertemetafor, der bliver knust til stumper, men derimod et mere barske ordvalg med »you broke my chest«, mens teksten på ‘Youth’ beskriver en hård og brutal afmagtsfølelse: »If you’re in love then you’re the lucky one / because most of us are bitter over someone«.
 
 
-https://www.youtube.com/watch?v=2QT5eGHCJdE
+[<img src="https://i.ytimg.com/vi_webp/2QT5eGHCJdE/maxresdefault.webp">](https://www.youtube.com/watch?v=2QT5eGHCJdE)
 
 Her skulle der være en video, men du kan ikke se denDen er ikke tilgængelig, da den kan indeholde cookies, som du har fravalgt i dine indstillinger.
 Ændring af dit samtykke
