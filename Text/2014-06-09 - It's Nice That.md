@@ -1,6 +1,6 @@
 # My Favourite Music Video: Daughter pick the amazing Frontier Psychiatrist by The Avalanches 
 
-https://www.youtube.com/watch?v=qLrnkK2YEcE
+[<img src="https://i.ytimg.com/vi/qLrnkK2YEcE/hqdefault.jpg">](https://www.youtube.com/watch?v=qLrnkK2YEcE) 
 
 Date \
 9 June 2014
@@ -21,19 +21,19 @@ I’m taking so much time to talk about the actual music because it seems to me 
 The director followed the craziness and emphasised it to point where you feel you’ve entered the (brilliant) mind of a complete madman. I can only imagine the amount of work it must have taken him and the team during the shooting and editing. The grain of the film and the lighting fit the spooky, crackly atmosphere of the song so well. Without wanting to spoil too much for those who haven’t seen it, there’s a choir of ghosts, and a turtle with an old man’s head, and a dwarf dressed as a baby… The result is a four minute and 20 second-long parade of insanity that I’ve kept coming back to with no shame or remorse. I always end up spotting something I hadn’t seen before. And it makes me happy. And then I watch it again. And I hope you will too. 
 
 
-<img src="">
+<img src="/Text/Resources/5395bf045c3e3c070a00053c.jpg">
 
 Above	The Avalanches: Frontier Psychiatrist
 
-<img src="">
+<img src="/Text/Resources/5395bf0b5c3e3c01d1000fd0.jpg">
 
 Above   The Avalanches: Frontier Psychiatrist
 
-<img src="">
+<img src="/Text/Resources/5395bf2b5c3e3c7ff7000a4f.jpg">
 
 Above   The Avalanches: Frontier Psychiatrist
 
-<img src="">
+<img src="/Text/Resources/5395bf1c5c3e3c01d1000fe6.jpg">
 
 Above   The Avalanches: Frontier Psychiatrist
 
