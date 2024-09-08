@@ -119,7 +119,7 @@ London-trio **Daughter** (Elena Tonra, Igor Haefeli, and Remi Aguilella) are kno
 
 **Elena Tonra:** Thank you so much.
 
-<img src="/Images/HisYoungHeart">
+<img src="/Text/Resources/hisyoungheart1500x1500.jpg">
 
 **AMBY:** My pleasure. The other thing I wanted to bring up speaking of your work are the EP covers.  I’ve read that you’ve been questioned about them quite a bit, and how they are old photos of you as a child.
 
