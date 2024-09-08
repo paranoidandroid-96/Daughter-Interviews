@@ -3,6 +3,11 @@
 
 Feature by Gary Kaill  \| 04 Oct 2013 
 
+<img src="/Images/Beth Chalmers/43290_original.jpg">
+
+**Daughter - Transmissions Stage** \
+Image: Beth Chalmers
+
 Daughter are that rare beast: an act whose gradual ascendancy throughout 2013 has been seemingly without fanfare or hype. They are a genuine, old-fashioned word-of-mouth success. Debut album If You Leave, a sprawling, atmospheric adventure, received plaudits for its sharp reworking of indie-folk tropes. It’s a work of beautifully understated dramatics: the delicate precision of its guitars and its spare, elementary arrangements form an uneasy alliance with the dark husk of singer Elena Tonra’s voice and the unnerving candour of her lyrics. A schedule of non-stop touring at home and abroad has seen them win a sizeable, loyal following. And emerging signature tune Youth has seen festival crowds switch from curious to swooning in a (broken) heartbeat.
 
 Elena and band mates Igor Haefeli (guitar) and Remi Aguilella (drums) are part way through an American headlining tour, and she thinks for a moment when The Skinny asks her where she is today. “We’re in Nashville,” she says. “Yeah, it’s amazing really. We’ve not been here [the American south] before; we’re just thrilled to be here. The crowds are, you know, quite up for it in terms of participation, which is great.” Another pause. "I don’t know, the American crowds are just so expressive, I think in both singing and in heckling… in a nice way!”
@@ -24,7 +29,7 @@ We talk some more about the slightly surreal lifestyle defined by motorway miles
 
 Daughter’s brooding inner visions are captured in unflinching close-up on If You Leave but it’s onstage where they manufacture drama and test the boundaries of their material. Throughout our interview, Tonra is endearingly self-mocking (“Sorry. Are you sure you’ve got enough to make a feature?”) and giggles non-stop. She does the same onstage – often, if the crowd dares to break those high tension silences, mid-song. It’s an ultimately winning approach: “I’m not the kind of person who’ll just walk into a room and start talking to people. I do have that nervous laughter thing about me, which I think I’ll have forever. I guess that’s the way we perform. If I really fuck up, yeah, I’ll laugh during the song. It’s actually between the songs that’s most difficult. When we’re in the songs, it’s almost like a trance – we’re escaping into our own heads and then you come out and suddenly you’re like ‘Oh shit! People are here!’”
 
-https://www.youtube.com/watch?v=2QT5eGHCJdE
+[<img src="https://i.ytimg.com/vi_webp/2QT5eGHCJdE/maxresdefault.webp">](https://www.youtube.com/watch?v=2QT5eGHCJdE)
 
 Daughter play Glasgow's Old Fruitmarket on 20 Oct and Manchester Ritz on 21 Oct \
 http://www.ohdaughter.com
