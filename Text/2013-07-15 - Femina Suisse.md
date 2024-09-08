@@ -3,10 +3,8 @@
 
 Muriel Chavaillaz \
 15 juil. 2013
-<p float="left">
-<img src="/Images/Perlyphotography/img_4514.jpg" width=65%> 
-</p>
 
+<img src="/Images/Perlyphotography/img_4514.jpg"> 
 
 <p align="right">  
 <img src="/Images/Perlyphotography/img_4528.jpg" width=15%>  <img src="/Images/Perlyphotography/img_4622.jpg" width=15%> </p>  
@@ -52,7 +50,31 @@ Elena: Je ne sais pas si l’on peut considérer cela comme un porte-bonheur, ma
 
 Vous avez manqué le concert de Daughter à Montreux? Elena, Igor et Rémi reviennent en Suisse: ils se produiront le samedi 16 novembre à Fri-Son (Fribourg).
 
-<img src="">
+<img src="/Images/Perlyphotography/img_4528.jpg">
+<img src="/Images/Perlyphotography/img_4622.jpg">
+<img src="/Images/Perlyphotography/img_4626.jpg">
+<img src="/Images/Perlyphotography/img_4633.jpg">
+<img src="/Images/Perlyphotography/img_4645.jpg">
+<img src="/Images/Perlyphotography/img_4656.jpg">
+<img src="/Images/Perlyphotography/img_4662.jpg">
+<img src="/Images/Perlyphotography/img_4667.jpg">
+<img src="/Images/Perlyphotography/img_4672.jpg">
+<img src="/Images/Perlyphotography/img_4675.jpg">
+<img src="/Images/Perlyphotography/img_4681.jpg">
+<img src="/Images/Perlyphotography/img_4682.jpg">
+<img src="/Images/Perlyphotography/img_4688.jpg">
+<img src="/Images/Perlyphotography/img_4688-2.jpg">
+<img src="/Images/Perlyphotography/img_4712.jpg">
+<img src="/Images/Perlyphotography/img_4715.jpg">
+<img src="/Images/Perlyphotography/img_4718.jpg">
 
-Ecrit par \
+<p align="center">
+<img src="https://www.femina.ch/assets/content/images/authors/_author150/Chavaillaz_Muriel_02-Copie.jpg" height=20% width=20%>
+</p>
+
+<p align="center">
+Ecrit par
+</p>
+<p align="center">
 Muriel Chavaillaz 
+</p>
