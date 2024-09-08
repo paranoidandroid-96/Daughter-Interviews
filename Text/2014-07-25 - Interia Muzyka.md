@@ -5,7 +5,9 @@ Michał Michalak \
 
 Londyńskie trio Daughter zostało przyjęte tak ciepło i głośno na tegorocznym gdyńskim Open'er Festival, że uroczo zawstydzona wokalistka Elena Tonra popłakała się na scenie ze wzruszenia. Bez wielkiego ryzyka można postawić tezę, że chusteczki przydadzą jej się również w kolejnych latach kariery. Bo Daughter perfekcyjnie utrafili w wrażliwość swojej wymagającej skądinąd publiczności. Zobaczcie, co nam powiedzieli członkowie tego obiecującego zespołu.
 
-<img src="">
+<p align="center">
+<img src="/Images/465293699.jpg" height=50% width=50%>
+</p>
 
 Elena Tonra, liderka Daughter (fot. Fiona Goodall) \| Getty Images
 
@@ -46,7 +48,17 @@ Muzyka Daughter okazała się na tyle sugestywna, że producenci telewizyjni not
 
 Jeśli kariera Daughter w najbliższych latach będzie się toczyła tak, jak się rozpoczęła, to mama czym prędzej powinna pomyśleć o grubym pakiecie darmowych minut.
 
-Sprawdź tekst "Youth" w serwisie Teksciory.pl!
+[Sprawdź tekst "Youth" w serwisie Teksciory.pl!](https://teksciory.interia.pl/daughter-youth-tekst-piosenki,t,641011.html)
 
 
+[<img src="https://i.iplsc.com/-/0003D2PRCG906X75-C303.jpg">](https://m.interia.pl/wideo/video,vId,1522771)
 
+[<img src="https://i.iplsc.com/open-er-festival-2014-daughter-nieco-zestresowani/0003D2R0UOS0N9BT-C303.webp">](https://m.interia.pl/wideo/video,vId,1522782)
+
+[<img src="https://i.iplsc.com/daughter-w-poszukiwaniu-przelomowego-momentu/0003EK19G8R5EN17-C303.webp">](http://m.interia.pl/wideo/video,vId,1533999)
+
+[<img src="https://i.iplsc.com/-/0003EK0L3CG9WTDD-C303.jpg">](https://m.interia.pl/interia-tv/video,vAId,122722,vId,1533990)
+
+[<img src="https://i.iplsc.com/-/0003EK1VGTSJAVK6-C303.jpg">](https://m.interia.pl/interia-tv/video,vId,1534001,vAId,122722)
+
+[<img src="https://i.ytimg.com/vi/RFlKGlPKBA0/maxresdefault.jpg">](https://www.youtube.com/watch?v=RFlKGlPKBA0)
