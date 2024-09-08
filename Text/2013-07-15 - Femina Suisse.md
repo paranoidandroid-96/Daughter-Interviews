@@ -69,7 +69,7 @@ Vous avez manqué le concert de Daughter à Montreux? Elena, Igor et Rémi revie
 <img src="/Images/Perlyphotography/img_4718.jpg">
 
 <p align="center">
-<img src="https://www.femina.ch/assets/content/images/authors/_author150/Chavaillaz_Muriel_02-Copie.jpg" height=20% width=20%>
+<img src="/Text/Resources/Chavaillaz_Muriel_02-Copie.jpg" height=20% width=20%>
 </p>
 
 <p align="center">
