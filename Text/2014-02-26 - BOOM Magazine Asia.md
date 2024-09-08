@@ -28,13 +28,15 @@ So to whom does His Young Heart refer? Elena explains how the E.P. title can be 
 
 Daughter have performed almost everywhere, with a highlight being their US tour last August, supporting The National. When asked about which gigs they prefer playing, drummer and percussionist Remi explains, “One of the stranger settings on that tour was a cemetery in L.A. when we were supporting The National, which was insane. We were surrounded by palm trees and the sun was setting, but there were loads of people sitting down in this cemetery still enjoying their picnics. That made it a bit difficult when we were trying to rock out to our songs on stage. I really enjoyed the show but the energy wasn’t quite right.” Elena chimes in, “At the same time, I think natural settings really complement our music.” Guitarist Igor suggests they look into playing in a cave, or even an inactive volcano. Elena and Remi giggle. “OK, maybe something a bit more realistic”, he continues, “like hidden away in a forest with some nice lights.”
 
-<img src="">
+<img src="/Images/410874_355700944442568_105498632_o.jpg">
 
 Daughter are known for performing church and cathedral gigs, which suit perfectly the echoing temper so characteristic of their music. In April 2013, they performed in Liverpool Anglican Cathedral, which is the biggest in the UK and fifth biggest in the world. “It was absolutely massive”, describes Elena, “the floor was heated as well, and so we just lay on the warm floor looking up at this incredible high ceiling.” Igor continues to compare gigs to tattoos – “I kind of just remember all our shows as reminders of the fun times we’ve had at all these amazing places.”
 
 Daughter and The National are both signed to the same label, 4AD, who united them on a US tour in August 2013. No small feat to secure a support slot with one of the world’s pioneering indie rock bands. Elena chimes in bashfully, “it was just such a pleasure to be able to watch one of our favourite bands play live every night. They are such an experienced band – such good musicians and in so much control of their performance.” When asked how the National fans responded to Daughter’s music, she continues, “some of the crowd maybe didn’t quite get what we were doing, but I really feel like we got across to quite a lot of them, which was really lovely. I think they recognised that we shared the same interest in the darker side of things.”
 
-<img src="/Images/">
+<p align="center">
+<img src="/Images/img_20140220_2005551.jpg" height=50% width=50%>
+</p>
 
 Directed at Elena and Igor, the inevitable question is raised about relationships and musicianship. The pair, once a couple, smiles at each other and confidently dismisses the importance of the status of a relationship if the band works well. “When you meet someone who you feel like you can trust enough to write in front of,” Elena says, “who cares about the Facebook status.” In reference to many ‘couple’ collaborations, like London’s THIEF or even John & Yoko, Elena claims that a relationship can go hand in hand with writing music. She declares, “It requires the same sort of honesty.”
 
