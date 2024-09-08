@@ -3,7 +3,17 @@
 
 ClashMusic / Features / 20 · 12 · 2013
 
-<img src="/Images/Alex Brunet/">
+<p align="center">
+<img src="/Images/Alex Brunet/rsz_daughterweb2.jpg">
+</p>
+
+<p float="left">
+<img src="/Images/Alex Brunet/daughterweb3.jpg" width=24%>
+<img src="/Images/Alex Brunet/daughterweb1.jpg" width=24%>
+<img src="/Images/Alex Brunet/daughterweb4.jpg" width=24%>
+<img src="/Images/Alex Brunet/rsz_1daughterweb2.jpg" width=24%>
+</p>
+
 
 As the year comes to a close and album shortlists are collated, Daughter’s debut set ‘If You Leave’ will be getting plenty of mentions for its bittersweet brilliance (Clash’s top albums list being no exception). It’s one of the most eerily atmospheric and hauntingly intimate releases in a long time.
 
@@ -13,7 +23,7 @@ But is this merely melodrama? And if not, where does Elena conjure these feeling
 
 ---
 
-https://www.youtube.com/watch?v=2QT5eGHCJdE
+[<img src="https://i.ytimg.com/vi_webp/2QT5eGHCJdE/maxresdefault.webp">](https://www.youtube.com/watch?v=2QT5eGHCJdE)
 
 ‘Youth’, from ‘If You Leave’
 
@@ -35,7 +45,7 @@ Her positive tone shifts towards the delicate whisper usually heard on record: �
 
 ---
 
-https://www.youtube.com/watch?v=uUWrcFpmI5U
+[<img src="https://i.ytimg.com/vi/uUWrcFpmI5U/sddefault.jpg">](https://www.youtube.com/watch?v=uUWrcFpmI5U)
 
 ‘Still’, from ‘If You Leave’
 
