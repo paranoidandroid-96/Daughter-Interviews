@@ -2,6 +2,8 @@ We are Daughter, ask us anything! by weareDaughter
 
 Thanks a lot for your questions. It was a lot of fun! Let's do it again sometime! Love. Elena, Igor, and Remi x
 
+<img src="/Images/1519174_796852670327391_8685344807848908516_o.jpg">
+
 ------------------------------------------------
 
 --COMMENTS--
