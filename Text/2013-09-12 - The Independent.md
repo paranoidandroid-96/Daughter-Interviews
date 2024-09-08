@@ -4,7 +4,7 @@
 Elisa Bray \
 Thursday 12 September 2013 17:35 BST
 
-<img src="">
+<img src="/Images/179157823.jpg">
 Elena Tonra, from Daughter (Getty)
 
 The quietly rising indie-folk trio Daughter are one of the 2013 festival season's success stories. After a run of dates supporting The National on tour in America, their return to the UK saw them perform to a packed John Peel tent at Glastonbury, leaving the crowd spellbound by 23-year-old Elena Tonra's powerfully emotive, haunting vocals, and the band's washes of atmospheric sound. Today marks their final festival stop of the year, at Festival Number 6 in Portmeirion.
