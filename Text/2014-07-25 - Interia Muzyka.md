@@ -1,6 +1,6 @@
 # Daughter: Nieśmiała szefowa (wywiad)
 
-<img src="/Text/Resources/000HBYV9ITOXPQMV-C416.jpg" align="left"> \
+<img src="/Text/Resources/000HBYV9ITOXPQMV-C416.png" align="left"> \
 Michał Michalak \
 25 lipca 2014 05:50
 <br clear="left"/>
