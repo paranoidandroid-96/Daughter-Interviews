@@ -21,7 +21,7 @@ From the self-release of their second E.P. ‘His Young Heart’ to their debut 
 The band’s two E.P.s, His Young Heart and The Wild Youth, both feature pictures of Elena when she was a child, posing unenthusiastically in one, and covered in tiger face paint with her brother in the other. When asked why, Elena chuckles while running her hands through her shock of dark hair, “Ha, I don’t know really. The whole three-word title thing has become a bit of a theme and I just thought these pictures went really well with the titles. I don’t know why I decided to use embarrassing pictures of myself when I was younger! That picture with my brother is great though. My grandmother took it when we went to one of those kids’ places, with ball pits and slides and stuff, and there’s just a series of photos of us two looking so excited the entire time. So that picture fit really well with the title The Wild Youth. It has nothing to do with the song lyrics though, just humorous really!”
 
 <p align="center">
-<img src="/Text/Resources/hisyoungheart1500x1500.jpg" height=50% width=50%>
+<img src="/Text/Resources/a0387644684_16.jpg" height=50% width=50%>
 </p>
 
 So to whom does His Young Heart refer? Elena explains how the E.P. title can be looked at from different perspectives. From her point of view, her dad is ‘he’ and she is his ‘young heart’. “When I look at that picture, it reminds me of my dad, because he took it of me in the stairway of my grandparents’ house, and I’m doing that typical awkward kid pose. The songs obviously have nothing to do with him at all, but from a visual point of view that E.P. makes me think of him.”
