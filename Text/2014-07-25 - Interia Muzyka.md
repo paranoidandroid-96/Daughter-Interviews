@@ -1,7 +1,9 @@
 # Daughter: Nieśmiała szefowa (wywiad)
 
+<img src="/Text/Resources/000HBYV9ITOXPQMV-C416.jpg" align="left"> \
 Michał Michalak \
 25 lipca 2014 05:50
+<br clear="left"/>
 
 Londyńskie trio Daughter zostało przyjęte tak ciepło i głośno na tegorocznym gdyńskim Open'er Festival, że uroczo zawstydzona wokalistka Elena Tonra popłakała się na scenie ze wzruszenia. Bez wielkiego ryzyka można postawić tezę, że chusteczki przydadzą jej się również w kolejnych latach kariery. Bo Daughter perfekcyjnie utrafili w wrażliwość swojej wymagającej skądinąd publiczności. Zobaczcie, co nam powiedzieli członkowie tego obiecującego zespołu.
 
@@ -17,7 +19,11 @@ Płyta Daughter dotarła na 16. miejsce brytyjskiej listy bestsellerów, zaistni
 
 Niewykluczone, że o sile Daughter stanowi intrygujące zderzenie kultur w obrębie grupy: Elena to Angielka o włosko-irlandzkich korzeniach, Igor Haefeli urodził się w Szwajcarii, a Remi Aguilella pochodzi z Francji. Jeśli nie na muzykę, to na pewno wpływa to choćby na codzienne relacje i atmosferę w zespole.
 
+[<img src="https://i.iplsc.com/open-er-festival-2014-daughter-nieco-zestresowani/0003D2R0UOS0N9BT-C303.webp">](https://m.interia.pl/wideo/video,vId,1522782)
+
 ---
+
+[<img src="https://i.iplsc.com/-/0003EK0L3CG9WTDD-C303.jpg">](https://m.interia.pl/interia-tv/video,vAId,122722,vId,1533990) 
 
 - Uwielbiam, kiedy Igor próbuje wypowiadać zwroty typowo brytyjskie, typowo angielskie a przy tym przeinacza jakiś mały detal. Pokładam się wtedy ze śmiechu - opowiada INTERIA.PL Elena, prywatnie dziewczyna Igora.
 
@@ -32,6 +38,8 @@ Muzycy Daughter podkreślają, że grania koncertów nauczyli się, podpatrując
 
 ---
 
+[<img src="https://i.iplsc.com/daughter-w-poszukiwaniu-przelomowego-momentu/0003EK19G8R5EN17-C303.webp">](http://m.interia.pl/wideo/video,vId,1533999)
+
 Kogo mieli okazję podpatrywać? Daughter wymieniają m.in. Bena Howarda, Sigur Ros czy The National. Zapytaliśmy o tych ostatnich.
 
 - To przemili goście, bardzo nas wpierają. Prywatnie są statecznymi ojcami, ale na scenie są niesamowicie intensywni - charakteryzuje Igor.
@@ -44,6 +52,8 @@ Muzyka Daughter okazała się na tyle sugestywna, że producenci telewizyjni not
 
 ---
 
+[<img src="https://i.iplsc.com/-/0003EK1VGTSJAVK6-C303.jpg">](https://m.interia.pl/interia-tv/video,vId,1534001,vAId,122722)
+
 - Nie oglądam za dużo telewizji, może dlatego, że nie mam telewizora. Więc kilka razy zdarzało się, że mama dzwoniła do mnie i przejęta mówiła, że słyszała właśnie naszą piosenkę w jakimś serialu czy spocie - śmieje się Elena.
 
 Jeśli kariera Daughter w najbliższych latach będzie się toczyła tak, jak się rozpoczęła, to mama czym prędzej powinna pomyśleć o grubym pakiecie darmowych minut.
@@ -52,13 +62,5 @@ Jeśli kariera Daughter w najbliższych latach będzie się toczyła tak, jak si
 
 
 [<img src="https://i.iplsc.com/-/0003D2PRCG906X75-C303.jpg">](https://m.interia.pl/wideo/video,vId,1522771)
-
-[<img src="https://i.iplsc.com/open-er-festival-2014-daughter-nieco-zestresowani/0003D2R0UOS0N9BT-C303.webp">](https://m.interia.pl/wideo/video,vId,1522782)
-
-[<img src="https://i.iplsc.com/daughter-w-poszukiwaniu-przelomowego-momentu/0003EK19G8R5EN17-C303.webp">](http://m.interia.pl/wideo/video,vId,1533999)
-
-[<img src="https://i.iplsc.com/-/0003EK0L3CG9WTDD-C303.jpg">](https://m.interia.pl/interia-tv/video,vAId,122722,vId,1533990)
-
-[<img src="https://i.iplsc.com/-/0003EK1VGTSJAVK6-C303.jpg">](https://m.interia.pl/interia-tv/video,vId,1534001,vAId,122722)
 
 [<img src="https://i.ytimg.com/vi/RFlKGlPKBA0/maxresdefault.jpg">](https://www.youtube.com/watch?v=RFlKGlPKBA0)
