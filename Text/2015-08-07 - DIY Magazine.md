@@ -2,7 +2,7 @@
 
 Elena Tonra updates us from New York, where the trio are working on their second album.
 
-<img src="">
+<img src="/Images/Daughter-In-The-Studio-DIY.jpg">
 
 **Hey Elena! You're currently on the other side of the Atlantic working on a new album, how's it going?** \
 It's going well, I think we're all excited about how things are sounding. We've nearly finished tracking. We're headed back home to London in a couple of weeks time. We will be pretty sad to leave this neighbourhood behind.
