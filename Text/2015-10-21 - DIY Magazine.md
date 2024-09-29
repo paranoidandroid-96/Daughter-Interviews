@@ -1,7 +1,7 @@
-In the studio
+## In the studio
 # Daughter spill the beans on new album ‘Not To Disappear’
 
-<img src="">
+<img src="/Images/Daughter-In-The-Studio-DIY.jpg">
 
 ---
 
@@ -21,7 +21,9 @@ Elena also confesses that those ‘second album nerves’ were, surprisingly, al
 
 “I think we tried to forget about the first album as much as possible. Obviously it’s hard to do that, but going into something as a completely new body of work without restricting yourself by thinking, ‘Is this too different or not different enough?’ is the kind of overthinking that gets in the way of feeling complete freedom creatively.”
 
-<img src="">
+<p align=left>
+<img src="/Images/img_0693.jpg" width=33%> <img src="/Images/img_0708.jpg" width=33%> <img src="/Images/img_0719.jpg" width=33%>
+</p>
 
 
 
@@ -41,5 +43,4 @@ Tracklist:
 9. Fossa
 10. Made Of Stone
 
-https://www.youtube.com/watch?v=bU5F-DvGLkA
-
+[<img src="https://i.ytimg.com/vi/bU5F-DvGLkA/maxresdefault.jpg">](https://www.youtube.com/watch?v=bU5F-DvGLkA)
