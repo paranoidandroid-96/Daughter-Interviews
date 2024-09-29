@@ -1,13 +1,12 @@
 # INTERVIEW: Daughter!
 
-<img src="/Images/Francesca Jane Allen/">
+<img src="/Images/Francesca Jane Allen/Daughter-2-CreditFrancescaAllen.jpg">
 
 
-<img src="/Text/Resources">
-
+<img src="/Text/Resources/Profile-Photo-150x150.jpg" height=10% width=10% align="left"> \
 Hilary Goldstein \
 Berklee College of Music
-
+<br clear="left"/>
 
 Boston Calling Music Festival was filled with many talented artists. There was something for all ages and I am thankful that I was given the opportunity to be there! During my time at this awesome three day festival, I was given the chance to go backstage and interview a band that I’ve been a fan of for a long time. “Daughter” is an Indie-Folk band from North London, that’s making heads turn and ears listen. With an ambient vibe and lyrics that will touch your soul, Daughter is becoming a force to be reckoned with.
 
@@ -15,9 +14,10 @@ Going backstage was an awesome experience! I met with Daughter band members, Ele
 
 ## Interview: Daughter
 
-<img src="/Images/Dave Lichterman">
+<img src="/Images/Dave Lichterman/72157633573400432 Daughter @ KEXP 5-16-2013/flickr_8771888266.jpg">
+
 Photo Credit: Dave Lichterman \
-Left to Right: , Remi Aguilella, Elena Tonra, Igor Haefeli
+Left to Right: Remi Aguilella, Elena Tonra, Igor Haefeli
 
 **Hil: It’s really nice to meet both of you, I’ve been excited about this for a while! So my first question is, how did you all meet and start making music? When did you realize that this could be something pretty big?**
 
@@ -27,7 +27,7 @@ Left to Right: , Remi Aguilella, Elena Tonra, Igor Haefeli
 
 **Elena:** This all really happened by chance actually, and we would have never met if we hadn’t gone to that school. It was a one year course and I came into it because a friend of mine was doing the same course. Yeah, it was very much like that, really weird chance meetings. I just wonder what would have happened if we wouldn’t have been in the same place at the same time!
 
-<img src="/Text/Resources/ICMP logo">
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/9c/ICMP_Logo_2.png">
 
 **Hil: Was the school you went to your first choice? What did you learn from going there?**
 
@@ -43,7 +43,7 @@ Left to Right: , Remi Aguilella, Elena Tonra, Igor Haefeli
 
 **Hil:** Sounds very familiar, very much like Berklee!
 
-<img src="">
+<img src="/Images/tumblr_obbse7ov5p1rpu2hjo1_1280.jpg">
 Photo Credit: Wilson Lee Photography
 
 **Hil: Who or what inspires you when you’re writing?**
@@ -88,7 +88,7 @@ Photo Credit: Reed Silverstein
 
 **Elena:** I think we have been especially lucky actually, and I think I get pissed off at the music industry on other peoples behalf. There has been just early stuff, even before Igor, Remi and I met each other. I went for this meeting ages ago when I was a kid, and they told me that in order to succeed, I’d have to change my image. I was like “F-ck off”. And I think that’s what spurs me on, is that side – the dark side of the music industry, where you have to be something that people want to sell. Where you need to dress a certain way, and be a certain way. It just like, I don’t want any part of that, so I think maybe that’s why we we’re so careful. There are certainly things about the industry side that I just don’t like and ultimately, we are not in it for that side. We are the creative side so I think that the industry just has bad stuff you need to do everything you can to avoid.
 
-<img src="">
+<img src="/Images/Eliot Lee Hazel/mg_5336ps.jpg">
 Photo Credit: Eliot Lee Hazel
 
 **Hil: If you could play with anyone, dead or alive, who would it be with and why?**
@@ -99,7 +99,7 @@ Photo Credit: Eliot Lee Hazel
 
 **Elena:** He just seems like the loveliest most beautiful person as well!
 
-<img src="">
+<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
 Photo Credit: Paradigm Talent Agency
 
 **Hil: What tip would you give to those musicians trying to make it in the music industry?**
@@ -118,7 +118,7 @@ Elena and Igor were truly some of the kindest, most humble people I’ve met and
 
 **Thank you Daughter and Glassnote Records for setting this up with me and for making this experience a truly memorable one!**
 
-<img src="">
+<img src="/Images/tumblr_nw67eiFoJg1rjeo3to1_1280.jpg">
 
 To follow Daughter on Twitter, Instagram, Facebook etc. Make sure to check out their social media sights below!
 
