@@ -1,8 +1,8 @@
 # Interview With Elena from Daughter
 
-<img src="/Text/Resources/">
-
+<img src="/Text/Resources/11206603_10206951045401408_688042771632546060_o-100x100.jpg" align="left"> \
 Spencer - December 4, 2015 // 3:06 pm
+<br clear="left"/> 
 
 While Daughter was in Tokyo, we manage to do a fun, exclusive interview with lead vocalist, Elena from Daughter via phone to find out what has 2015 thrown at the band and what is to come in 2016.
 
@@ -36,7 +36,7 @@ But we were like “Nah, let’s do whatever we want”, like a blank canvas. An
 
 **Elena:** Aww! We’d love to, it’d be so great. We had so much on the Laneway tour, so amazing and had such a lovely time so as soon as possible would be great haha! I hope so. The amazing thing with Laneway is that you travel with the same bands which is so rare. So to see this people performing was great and you get to know them as well throughout. We went to Waiheke Island actually on our day off and we went to this vineyard and there was like the BEST GRASS EVER! And then everyone was like “Have you felt this grass”, so we took off our shoes off and we were like “OMG!” and it was like the strangest thing, a group of people feeling their grass haha…
 
-<img src="/Images/Timothy Cochrane/">
+<img src="/Images/Timothy Cochrane/tumblr_nhgrkrkigm1tozcv7o4_1280.jpg">
 
 **A lot of stars (Taylor Swift and Justin Bieber) have come over to film music videos, will you guys be keen to film a video here?**
 
