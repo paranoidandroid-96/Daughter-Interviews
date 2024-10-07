@@ -1,7 +1,7 @@
 # Sex and Loneliness
 16 December 2015, 09:00
 
-<img src="/Images/Sonny Malhotra/">
+<img src="/Images/Sonny Malhotra/Daughter_by_Sonny_Malhotra-9770_2400.jpg">
 
 Words by Lauren Down \
 Original Photography by Sonny Malhotra \
@@ -25,7 +25,7 @@ Haefeli looks up from the table and interjects. “Also, don’t forget, sad is 
 
 Even though her words are hesitant at times, it doesn’t take long to see a new strength in Tonra - a freedom born from ignoring expectations and a bold directness that has manifested itself on the new record, a record that has serious guts. Due in January, Not To Disappear was largely created in London at Cable Street Studios before the three-piece took their vision to New York in order to work with Nicolas Vernhes (Deerhunter, War on Drugs, Animal Collective). According to Tonra, the album is the result of the band “emptying their brains” after years of touring …“some songs happened in one take, a kind of word vomit” she jokes. “I really enjoyed that way of working. Everything felt free and liberating. Even if you find through writing that you're a terrible human being - like ‘I am such a dick in this song’ - it's a good thing. There’s merit in that. It's way more honest.”
 
-<img src="">
+<img src="/Images/Sonny Malhotra/Daughter_by_Sonny_Malhotra-9656.jpg">
 
 The raw immediacy of its creation means the album’s racing rhythms and unflinching lyrics sound as if they’re still processing those original emotions, searching for a resolution to the tensions that can be found at its core. It’s a living, breathing record; one into which Daughter have poured so much of themselves that you can all but hear it gasping for air, fighting to exist. “There are songs on the album that are more aggressive, and songs that definitely have an element of ‘fuck it’ to them” admits Tonra. Haefeli glances to his right: “I was just thinking”, he says. “One of the things I’m most proud about on the record was that it definitely felt like you were opening up in terms of how you wanted to say something.”
 
@@ -47,7 +47,7 @@ To be surrounded by people but to feel completely alone; to experience something
 
 “There’s no glamourising,” Haefeli agrees. “It’s more like walking in on someone, it suddenly becomes this awkward thing where it’s just two naked people rubbing against one another and you’re drawn to the functionality of the act – where it’s just plainly what it is, and nothing else. It’s so direct.”
 
-https://www.youtube.com/watch?v=bU5F-DvGLkA
+[<img src="https://i.ytimg.com/vi/bU5F-DvGLkA/maxresdefault.jpg">](https://www.youtube.com/watch?v=bU5F-DvGLkA)
 
 And whilst “No Care” is probably the most direct track in that sense, it’s “Doing The Right Thing” that entirely frees itself from metaphor, dealing with Dementia – and specifically Alzheimer’s – is a straight up manner whilst holding onto the song’s raw origins. Keeping those original intentions intact is something that endeared the band to their producer during their stint in the states. “He'd always keep that core of emotional feeling of the song, the …” Tonra stop for a moment, trying to find the word she’s searching for.
 
@@ -61,7 +61,7 @@ Haefeli’s ears perk up. “It was a slow, slow song. It was pretty drone-y and
 
 They both agree it was travelling stateside that allowed that to happen. “It was definitely New York” Haefeli nods. “It was going there and suddenly gaining fresh perspectives. It was the sun and the concrete” he reels off in one rapid breath, his vivid visual inspiration springing to life “the unbearable heat, feeling very much alive and getting this interesting evening light. It was driving through LA at night. Even really early on, “New Ways” became the driving through LA at night song.” To which Tonra smiles and agrees, one of the beautiful thing about music being that the meaning can change in the briefest of moments as contexts and lives shift.
 
-<img src="">
+<img src="/Images/Sonny Malhotra/Daughter_by_Sonny_Malhotra-9733.jpg">
 
 Thinking more on the push and pull between her and Haefeli, Tonra continues: “It's hard to get three people, or four people with Nicolas, to agree on something. Creativity comes from those tensions and from those disagreements but yeah … It has been a weird, trudging through mud album to make it some ways but I think actually that’s made it a better album because we’ve all been pushing each other to do different things, things that maybe we wouldn’t have done if this was three years ago.”
 
