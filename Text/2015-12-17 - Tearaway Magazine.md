@@ -1,4 +1,4 @@
-<img src="/Images/Francesca Jane Allen/">
+<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
 
 # Daughter’s Remi Aguilella On Their New Album, Collabs And Hotline Bling
 December 17, 2015
@@ -49,4 +49,4 @@ Mildly.
 Check out Daughter on Spotify and iTunes.
 </p>
 
-https://www.youtube.com/watch?v=z-fD3PIRSO8
+[<img src="https://i.ytimg.com/vi/z-fD3PIRSO8/maxresdefault.jpg">](https://www.youtube.com/watch?v=z-fD3PIRSO8)
