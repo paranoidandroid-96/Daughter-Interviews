@@ -1,0 +1,23 @@
+<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
+
+# Disappearing Act
+
+by David James Young
+
+**Despite being one of the more reserved LPs of the year, If You Leave – the debut album from London neo-folk trio Daughter – certainly resonated upon its arrival in 2013. Peaking in the British top 20, scoring rave reviews from critics, and even landing songs in shows such as Grey’s Anatomy and Hollyoaks, it was clear to all and sundry there was something quite special about this group. Needless to say, a follow-up could well have been a daunting prospect. But with a change of method, they found themselves at ease while making album number two.**
+
+“We knew that it was something that we couldn’t overthink,” says vocalist, guitar and bass player Elena Tonra. “We knew that if we did that, it would kill any degree of spontaneity or off-the-cuff creativity that we had going. We were touring for quite a long time, but when we came back to the studio we had built up all of these different ideas. Musically, we were coming from a lot of different angles and trying styles that people normally wouldn’t associate with us. We had a really open mind in terms of which direction we could go – and I think the conscious decision to factor out whether songs sounded too much like the last album or not enough allowed us to open up as much as we could.”
+
+The end result is Not to Disappear, which arrives some two-and-a-half years after If You Leave and has plenty to show for the time between. Production was split between guitarist Igor Haefeli and American producer Nicolas Vernhes. Vernhes has previously worked with the likes of The War on Drugs, Deerhunter and Speedy Ortiz and he set the band up in his own studio space in Brooklyn. It’s an album that explores a lot of new territory for Daughter – not least of all for Tonra, who found herself writing as honestly as she could from a lyrical perspective.
+
+“I think that both albums are equally high in percentage of me telling everyone everything,” she laughs. “I feel like, writing wise, I was writing quite differently. It felt a lot more direct and conversational, whereas the last album felt like it used a lot more abstract imagery. I’m not going to lie, I was a little worried at first when I read some of my sets of lyrics back. I was like, ‘Oh, bloody hell. Can we use this?’ I felt it was important to not edit myself, however. I wanted to use exactly what came out of my head the first time. I think Not to Disappear deals with a lot of things – it’s a lot more vulnerable and a lot more naked.”
+
+Although just three people, Daughter ably create densely-layered sonic atmospheres. Walls of shimmering guitar often go up against beds of keys; while a violin bow shredded over guitar strings can pierce through a wave of ambience at any given moment. With all three members being multi-instrumentalists, their individual duties are fairly amorphous.
+
+“This album is definitely less concerned with our set roles,” says Tonra. “For If You Leave, I would come in with the basics – the guitar part and the vocals – then I’d work on it with Igor and then we’d show it to Remy [Aguilella] to jam with him. It was a lot more free form this time – it was never me showing the other guys what the songs were going to be. All three of us would get together at the same time and just see what the other had to offer. I think a lot of the freedom we had on this album had to do with the fact we’d hired out our own space. We had a room for about a year-and-a-half that we would come to every week. It was good to get away from your own flat and not be disturbed by neighbours telling you to shut up every hour.”
+
+After beginning work on it in early 2014, Not to Disappear is finally ready to go and Daughter are planning their next move – which, inevitably, means touring the world in support of the record. Australia is on the cards, and Tonra herself is particularly excited to return with new songs and a new live lineup.
+
+“We have loved our visits there,” she says. “It’s so far away. It really is so exciting that people know our music no matter where we go. I suppose that’s the miracle of the Internet age, that anyone can discover your songs. You can travel all this way, and there’s all these people waiting for you. It’s just beautiful. This will be our first tour with our new touring member, Lucy [Parnell], who will be filling out a lot of the extra layers of guitar and keyboards and backing vocals so it can sound full live. She’s really great – it’s so lovely to have a lady to do all of my harmonies with.”
+
+DAUGHTER’s new album Not To Disappear is out on Friday January 15 via 4AD/Remote Control Records.
