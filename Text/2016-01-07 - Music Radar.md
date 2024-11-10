@@ -147,4 +147,12 @@ Do you recall any particular advice that Nicolas Vernhes gave you to help you ac
 
 “We have this philosophy of it all being human, which does make things more difficult live, but I think making records should be free from that [thought process]. I’m definitely excited, but right now I’m thinking about getting it ready!”
 
-**Daughter's second album Not To Disappear is out 16 January on 4AD**
+**Daughter's second album Not To Disappear is out 16 January on 4AD** 
+
+<img src="/Text/Resources/Z7LqJm43YUoYCXo3AENUiJ-280-100.png" align="left"> \ 
+
+**Matt Parker**
+
+<br clear="left"/>
+
+Matt is a freelance journalist who has spent the last decade interviewing musicians for the likes of Total Guitar, Guitarist, Guitar World, MusicRadar, NME.com, DJ Mag and Electronic Sound. In 2020, he launched CreativeMoney.co.uk, which aims to share the ideas that make creative lifestyles more sustainable. He plays guitar, but should not be allowed near your delay pedals.
