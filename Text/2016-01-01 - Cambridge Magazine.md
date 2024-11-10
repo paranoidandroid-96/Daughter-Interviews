@@ -21,7 +21,8 @@ Having joined up with Elena and Igor while all three were studying in London, fo
 
 And it seems that his expertise and experience really came into their own in the studio this time around. Explaining the process of song selection for Not To Disappear, he tells a revealing tale of how the song No Care came to make it – at the last moment – on to the album. “I didn’t have a drum part until the very last day in the studio, when we said ‘Oh, this one, this demo could be on [the album] as well’. I was already exhausted and somehow had to just come up with the drums for the different parts, so I just said ‘Leave me in the studio, press record, and just don’t talk to me for about an hour!’. . . After an hour I came out of that studio exhausted, and then we decided to go with a bunch of samples that I did. So I’ll definitely remember the process of recording that one!”
 
-``` The bigger the audience became, the more intense the songs seemed to become live
+``` 
+The bigger the audience became, the more intense the songs seemed to become live
 ```
 
 And the end result is stunning – fiercely (almost viciously) percussive and propulsive, one of the album’s standout tracks. What other highlights can we look forward to, among the new tracks, when they tour the album?
