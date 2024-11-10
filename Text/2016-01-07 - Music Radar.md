@@ -149,10 +149,10 @@ Do you recall any particular advice that Nicolas Vernhes gave you to help you ac
 
 **Daughter's second album Not To Disappear is out 16 January on 4AD** 
 
-<img src="/Text/Resources/Z7LqJm43YUoYCXo3AENUiJ-280-100.png" align="left"> \ 
+<img src="/Text/Resources/Z7LqJm43YUoYCXo3AENUiJ-280-100.png" height=20% width=20% align="left"> 
 
 **Matt Parker**
 
-<br clear="left"/>
+<br clear="left"/> 
 
 Matt is a freelance journalist who has spent the last decade interviewing musicians for the likes of Total Guitar, Guitarist, Guitar World, MusicRadar, NME.com, DJ Mag and Electronic Sound. In 2020, he launched CreativeMoney.co.uk, which aims to share the ideas that make creative lifestyles more sustainable. He plays guitar, but should not be allowed near your delay pedals.
