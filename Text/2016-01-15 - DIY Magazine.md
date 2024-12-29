@@ -3,10 +3,12 @@
 ### Interview: 
 # Upbringing: Daughter
 ---
-## Delve into the influences and upbringing of Daughter singer and multi-instrumentalist (ooh, fancy) Elena Tonra.
 
-Words: Ed Cooper \	
+## Delve into the influences and upbringing of Daughter singer and multi-instrumentalist (ooh, fancy) Elena Tonra. 
+
+Words: Ed Cooper \
 15th January 2016 
+
 ---
 
 Armed with the unenviable task of succeeding 2013’s dazzling ‘If You Leave’, Daughter - made up of Elena Tonra, Igor Haefeli and Remi Aguilella - are now trailblazing once again. Namely, with ‘Not to Disappear’, their sophomore album released today, which is set to continue exploring a particularly fascinating (and hauntingly romantic) sound. One that’s now a stalwart on Radio 1 playlists, ‘ones to watch in 2016’ lists across the collective blogosphere and has since launched Daughter from strength to mesmerising strength. Of course - and as the maxim (er, sort of) goes - with the pudding, must come the proof.
