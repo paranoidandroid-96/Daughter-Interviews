@@ -1,4 +1,4 @@
-## Kultur /| Flow Festival 
+## Kultur | Flow Festival 
 # Brittiska Daughter är musik att gråta och älska till
 
 <img src="/Images/14-svyle-29978357ac4a4470b14.jpeg">
@@ -64,21 +64,21 @@ Bakom scenen pratar de istället gärna, mest Elena som mitt i sin analys av sin
 
 Igor och Elena i ett mörkt Stockholmsbackstage. Bild: Tomas Jansson/YLE
 
-- Jag är väldigt spontan som textförfattare. Det kan gå månader utan att jag skriver nånting alls, och sen kommer en vecka då jag skriver väldigt mycket.
+\- Jag är väldigt spontan som textförfattare. Det kan gå månader utan att jag skriver nånting alls, och sen kommer en vecka då jag skriver väldigt mycket.
 
 ## ”Kan inte skriva om jag är lycklig”
 
-- För mej handlar det om sinnesstämning. Oftast är det så att, när jag känner mej lycklig så har jag inga idéer, helt enkelt ingenting. Det är kanske därför som våra sånger har en så specifik ton.
+\- För mej handlar det om sinnesstämning. Oftast är det så att, när jag känner mej lycklig så har jag inga idéer, helt enkelt ingenting. Det är kanske därför som våra sånger har en så specifik ton.
 
 *Du tror inte på kärleken?*
 
-- Jo men, jag vill aldrig förlora mitt jag för idén att vara med en annan. Det är liksom kampen mellan att känna sej fantastisk ensam, och vara med nån annan och känna sej fantastisk men så att du ändå på något sätt måste kompromissa. Sen när du bryter upp känns det som om halva ditt jag är borta och som att, vart försvann det?
+\- Jo men, jag vill aldrig förlora mitt jag för idén att vara med en annan. Det är liksom kampen mellan att känna sej fantastisk ensam, och vara med nån annan och känna sej fantastisk men så att du ändå på något sätt måste kompromissa. Sen när du bryter upp känns det som om halva ditt jag är borta och som att, vart försvann det?
 
-- När du är förälskad vill du vara där hela tiden med den andra, men att vara förälskad är också skrämmande. Som att, det här är hemskt, jag älskar det men jag vill också rymma och gömma mej och aldrig se dej mer, säger Elena och skrattar stort.
+\- När du är förälskad vill du vara där hela tiden med den andra, men att vara förälskad är också skrämmande. Som att, det här är hemskt, jag älskar det men jag vill också rymma och gömma mej och aldrig se dej mer, säger Elena och skrattar stort.
 
-- Kanske jag har ett konstigt förhållande till kärleken, sådär som att, vi kommer ju alla att dö så man kan inte bli för fäst vid andra.
+\- Kanske jag har ett konstigt förhållande till kärleken, sådär som att, vi kommer ju alla att dö så man kan inte bli för fäst vid andra.
 
-- Jag är så dyster, tillägger hon, och skrattar igen stort.
+\- Jag är så dyster, tillägger hon, och skrattar igen stort.
 
 <img src="/Images/14-svyle-29977857ac47843f9b1.jpeg">
 
@@ -86,13 +86,13 @@ Elena Tonra. Bild: Copyright Rex Features Ltd 2012/All Over Press
 
 *Du har aldrig skrivit en lycklig kärlekssång?*
 
-- Nej aldrig. Och det är så synd, för jag känner absolut att jag har kapacitet att vara lyckligt förälskad i nån, men det kan inte översättas till mitt låtskrivande. Närmast har jag väl kommit i Made of stone, och det berättar väl allt.
+\- Nej aldrig. Och det är så synd, för jag känner absolut att jag har kapacitet att vara lyckligt förälskad i nån, men det kan inte översättas till mitt låtskrivande. Närmast har jag väl kommit i Made of stone, och det berättar väl allt.
 
 *Upplever du att dina sångtexter kunde fungera som självständiga verk?*
 
-- Egentligen inte. Jag är inte så självsäker i mitt skrivande, tidigare har jag aldrig ens haft texterna tryckta, det är först nu jag har vågat det, efter två epn och två skivor. Men jag känner mej så mycket mer trygg när texterna är en del av en helhet med musik.
+\- Egentligen inte. Jag är inte så självsäker i mitt skrivande, tidigare har jag aldrig ens haft texterna tryckta, det är först nu jag har vågat det, efter två epn och två skivor. Men jag känner mej så mycket mer trygg när texterna är en del av en helhet med musik.
 
-- Jag har nog skrivit poesi också, men jag tror att folk ska få hitta det först sen när jag har dött.
+\- Jag har nog skrivit poesi också, men jag tror att folk ska få hitta det först sen när jag har dött.
 
 Så ber jag Elena om att hon skulle läsa en låttext högt för mig och min mikrofon. "Skrämmande!", skrattar hon, men tar sedan mod till sig och väljer att läsa texten till låten *Smother*.
 
@@ -104,11 +104,11 @@ När man söker Daughters musik på nätet hittar man en rad videon med ett igen
 
 Det förklaras av att samma team står bakom gruppens videon; videokonstnärerna och filmregissörerna Jane Pollard och Iain Forsyth, bekanta framför allt från Nick Cave-filmen 20.000 Days on Earth.
 
-- Många av våra videon är som kortfilmer, och det är så vi vill se dem.
+\- Många av våra videon är som kortfilmer, och det är så vi vill se dem.
 
 [<img src="https://i.ytimg.com/vi/bU5F-DvGLkA/maxresdefault.jpg">](https://www.youtube.com/watch?v=bU5F-DvGLkA)
 
-- Vi hade turen att få med Iain och Jane ända från vår allra första video. De är också intresserade av kortfilmkonceptet och vill mer söka historien bakom låtarna än bara filma bandet. De gör en värld kring våra sånger, så de känns verkligen som vårt dreamteam.
+\- Vi hade turen att få med Iain och Jane ända från vår allra första video. De är också intresserade av kortfilmkonceptet och vill mer söka historien bakom låtarna än bara filma bandet. De gör en värld kring våra sånger, så de känns verkligen som vårt dreamteam.
 
 ## Jeff Buckley som tidig hjälte
 
@@ -116,9 +116,9 @@ När vi talar musikaliska hjältar har jag läst om hur gitarristen Igor Haefeli
 
 Elena Torna däremot...
 
-- När jag var liten så var Jeff Buckley min stora hjälte. Av nån orsak ville jag vara Jeff Buckley, besynnerligt kanske eftersom han är man.
+\- När jag var liten så var Jeff Buckley min stora hjälte. Av nån orsak ville jag vara Jeff Buckley, besynnerligt kanske eftersom han är man.
 
-- Jag hade nog kvinnliga inspirationskällor också, men inte på samma sätt. Det var Joni Mitchell från mina föräldrars skivhylla. Som riktigt ung var det sånt som Destiny’s Child, Beyonce, Spice Girls förstås, som 10-åring var det härligt att se en grupp kvinnor med sån girlpower.
+\- Jag hade nog kvinnliga inspirationskällor också, men inte på samma sätt. Det var Joni Mitchell från mina föräldrars skivhylla. Som riktigt ung var det sånt som Destiny’s Child, Beyonce, Spice Girls förstås, som 10-åring var det härligt att se en grupp kvinnor med sån girlpower.
 
 ## Finlandspremiär på Flowfestivalen
 
