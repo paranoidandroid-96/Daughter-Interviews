@@ -42,7 +42,7 @@ Daughter has made emotional devastation an art form in and of itself over the co
 [<img src="https://i.ytimg.com/vi/z-fD3PIRSO8/maxresdefault.jpg">](https://www.youtube.com/watch?v=z-fD3PIRSO8)
 
 **So it wasn’t intentional.** \
-**HAFELI:** No. It’s definitely our sensibility at work, so, if sometimes we do things in a similar way, it’s just because that’s how we instinctively feel like doing it, I guess.
+**HAEFELI:** No. It’s definitely our sensibility at work, so, if sometimes we do things in a similar way, it’s just because that’s how we instinctively feel like doing it, I guess.
 
 **It’s just your natural ebb and flow at that point.** \
 **HAEFELI:** Yeah, exactly. We spent a lot of time on sequencing, and we know we probably went through every possible version. \
