@@ -1,10 +1,8 @@
 # Daughter
 
-## La banda inglesa DAUGHTER saltó a la fama en el 2013 de la mano de su rotundo éxito IF YOU LEAVE, diez temas que podrían catalogarse de indie-folk, diez canciones entre las que se encontraban Youth, Smother, o Still. IF YOU LEAVE disco donde los de británicos ponían sobre la mesa la calidad de unos valores que ya auguraban sus eps previos. Dos años después es el turno de NOT TO DISAPPEAR. (4AD / Glassnote 2016)
+## La banda inglesa DAUGHTER saltó a la fama en el 2013 de la mano de su rotundo éxito IF YOU LEAVE, diez temas que podrían catalogarse de indie-folk, diez canciones entre las que se encontraban Youth, Smother, o Still. IF YOU LEAVE disco donde los de británicos ponían sobre la mesa la calidad de unos valores que ya auguraban sus eps previos. Dos años después es el turno de NOT TO DISAPPEAR. (4AD / Glassnote 2016) y de ratificar las impresiones tan maravillosas que nos dejaron sus anteriores composiciones, para ello y con motivo de ello nos reunimos con la banda buscando que nos cuenten todos los detalles de su segundo larga duración, NOT TO DISAPPEAR.
 
-Texto por Santiago Herrero
-
-\arrow y de ratificar las impresiones tan maravillosas que nos dejaron sus anteriores composiciones, para ello y con motivo de ello nos reunimos con la banda buscando que nos cuenten todos los detalles de su segundo larga duración, NOT TO DISAPPEAR.
+**Texto por Santiago Herrero**
 
 SANTIAGO HERRERO Habiendo sembrado ya el éxito y conociendolo de primera mano, el próximo quince de enero publicais vuestro segundo álbum, NOT TO DISAPPEAR. poniendo final a todos los nervios e incertidumbres que hubiese generado su composición... 
 
@@ -36,7 +34,7 @@ ELENA TONRA Todas las canciones son personalmente oscuras. Quizás Doing The Rig
 
 <img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
 
-Foto de Francesca Jane Allen
+**Foto de Francesca Jane Allen**
 
 SANTIAGO HERRERO Sin embargo, si consideramos el número de reproducciones en Spotify como medidor social, su canción más aclamada por el público es Youth. 
 
