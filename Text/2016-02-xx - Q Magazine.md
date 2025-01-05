@@ -13,7 +13,9 @@ Misery supposedly loves company, but on their follow-up to 2013’s If You Leave
 
 If listening to this record feels like eavesdropping, however, what’s overheard is emotional dynamite. Alone/With You is a superb dissection of what happens when being with another person is even worse than being alone, while Numbers, with its grimly punning title, feels like The xx in desperate freefall.
 
-There are flashes where Daughter do move closer to the world outside, though. Doing The Right Thing deals with ageing and mental health in a way few bands would dare, while there is even a flicker of rueful humour on Alone/ With You, where Tonra decides getting a dog might solve her problems, or on the urgent flare of No Care, where nobody ever asks her to dance because, “I only know how to flail.” They might want to be alone, but when they are this good, Daughter are going to have trouble keeping the crowds away. ★ ★ ★ ★
+There are flashes where Daughter do move closer to the world outside, though. Doing The Right Thing deals with ageing and mental health in a way few bands would dare, while there is even a flicker of rueful humour on Alone/ With You, where Tonra decides getting a dog might solve her problems, or on the urgent flare of No Care, where nobody ever asks her to dance because, “I only know how to flail.” They might want to be alone, but when they are this good, Daughter are going to have trouble keeping the crowds away.
+
+★ ★ ★ ★
 
 VICTORIA SEGAL
 
