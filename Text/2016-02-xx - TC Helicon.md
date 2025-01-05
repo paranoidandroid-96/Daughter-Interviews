@@ -37,3 +37,4 @@ We met up with Elena before Daughter’s gig in Copenhagen in February 2016 for 
 [VoiceLive 2](http://web.archive.org/web/20170110102854/http://www.tc-helicon.com/en/products/voicelive-2/)
 Vocal Harmony & Effects Pedal
 
+[<img src="https://i.ytimg.com/vi/Q4SeGz_SSTA/maxresdefault.jpg">](https://www.youtube.com/watch?v=Q4SeGz_SSTA)
