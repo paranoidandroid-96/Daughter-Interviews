@@ -1,6 +1,6 @@
 # Daughter
 
-## La banda inglesa DAUGHTER saltó a la fama en el 2013 de la mano de su rotundo éxito IF YOU LEAVE, diez temas que podrían catalogarse de indie-folk, diez canciones entre las que se encontraban Youth, Smother, o Still. IF YOU LEAVE disco donde los de británicos ponían sobre la mesa la calidad de unos valores que ya auguraban sus eps previos. Dos años después es el turno de NOT TO DISAPPEAR. (4AD / Glassnote 2016) \arrow
+## La banda inglesa DAUGHTER saltó a la fama en el 2013 de la mano de su rotundo éxito IF YOU LEAVE, diez temas que podrían catalogarse de indie-folk, diez canciones entre las que se encontraban Youth, Smother, o Still. IF YOU LEAVE disco donde los de británicos ponían sobre la mesa la calidad de unos valores que ya auguraban sus eps previos. Dos años después es el turno de NOT TO DISAPPEAR. (4AD / Glassnote 2016)
 
 Texto por Santiago Herrero
 
