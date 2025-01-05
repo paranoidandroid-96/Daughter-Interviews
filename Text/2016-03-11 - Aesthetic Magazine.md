@@ -6,8 +6,8 @@ By: Gemma Mastroianni –
 
 <img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
 
-<p align="center">
-**Singer/guitarist Elena Tonra, guitarist/producer Igor Haefeli and drummer Remi Aguilella of Daughter.**
+**<p align="center">
+Singer/guitarist Elena Tonra, guitarist/producer Igor Haefeli and drummer Remi Aguilella of Daughter.**
 </p>
 
 Question: how do you match an album as peerless, wholly immersive, and as widely acclaimed and adored as Daughter’s 2013 debut If You Leave? Simple: up the ante on every level. Building on that record’s gloriously dark intensity, wracked emotion and come-hither diaphanous textures, Not To Disappear, the new full-length release from the London-based trio – singer/guitarist Elena Tonra, guitarist/producer Igor Haefeli and drummer Remi Aguilella – is a mighty declaration of intent. Profoundly ruminative and lugubrious, bold and direct, it’s arguably even more assertive and compelling than its much-lauded predecessor.
@@ -36,8 +36,8 @@ I think I didn’t realize but with a lot of songs a lot of things would be disg
 
 <img src="/Text/Resources/nottodisappear_1500x1500.jpg" height=50% width=50% align="right">
 
-<p align="right">
-**Daughter recorded their new album, Not To Disappear, at producer Nicolas Vernhes’ Brooklyn, New York studio.**
+**<p align="right">
+Daughter recorded their new album, Not To Disappear, at producer Nicolas Vernhes’ Brooklyn, New York studio.**
 </p>
 
 **You’ve a very honest songwriter. Were there any songs on Not To Disappear where you stepped back and asked, “is this too much information?”**
