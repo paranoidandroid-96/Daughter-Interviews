@@ -2,7 +2,7 @@
 **Andy Downing, Columbus Alive** \
 Published: 12:01 a.m. ET March 30, 2016 Updated: 2:39 p.m. ET March 31, 2016
 
-<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
+<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg"> \
 *Columbus Alive*
 
 Not to Disappear, the sophomore full-length from English indie-folk trio Daughter, plays like a musical companion to director Paul Thomas Anderson's "Magnolia."
