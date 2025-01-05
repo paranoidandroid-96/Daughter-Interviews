@@ -55,8 +55,8 @@ To add further interest in the album, the band commissioned filmmakers Iain Fors
 “Expressing your emotions isn’t a weakness but a real strength,” says Tonra. “I think with this new album, there’s less hiding. I used to hide a lot of my themes in poetry. But now, there’s no veil."
 Jeff Hemmings
 
-Website: [ohdaughter.com] \
-Facebook: [facebook.com/ohdaughter] \
-Twitter: [twitter.com/ohdaughter]
+Website: [ohdaughter.com](https://ohdaughter.com)\
+Facebook: [facebook.com/ohdaughter](https://facebook.com/ohdaughter) \
+Twitter: [twitter.com/ohdaughter](https://twitter.com/ohdaughter)
  
 Read the new Daughter album review [HERE](http://web.archive.org/web/20160502215958/http://brightonsfinest.com/html/index.php/article/12-music/1147-daughter-not-to-disappear).
