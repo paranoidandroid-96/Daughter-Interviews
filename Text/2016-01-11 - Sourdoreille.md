@@ -1,14 +1,19 @@
 <img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
+
 # Rencontre : Daughter, compositeur interprète
 
 <p align="center">
-Interviews \
-6 minutes \
+Interviews
+</p>
+<p align="center">
+6 minutes
+</p>
+<p align="center">
 Écrit par Romain le 11.01.2016
 </p>
 
-<p align="center">
-*Quand on y regarde bien, notre époque ressemble de près à une cacophonie géante. La musique est partout, le bruit inévitable. C’est pourquoi, en pauvres individus globalisés, on lit, on entend et on ressent soi-même nécessairement le besoin de se rapprocher de l’intime. Comme en 2016, il n’y a plus de nature et qu’on va mourir sous les eaux, on ne dira pas qu’il faut « trouver son jardin secret » mais plutôt « s’immerger en eau douce ». Essai sur la tranquillité et l’émotion avec le trio Daughter.*
+**<p align="center"> 
+Quand on y regarde bien, notre époque ressemble de près à une cacophonie géante. La musique est partout, le bruit inévitable. C’est pourquoi, en pauvres individus globalisés, on lit, on entend et on ressent soi-même nécessairement le besoin de se rapprocher de l’intime. Comme en 2016, il n’y a plus de nature et qu’on va mourir sous les eaux, on ne dira pas qu’il faut « trouver son jardin secret » mais plutôt « s’immerger en eau douce ». Essai sur la tranquillité et l’émotion avec le trio Daughter.**
 </p>
 
 Le 15 janvier 2016, trois ans après son premier opus If You Leave, Daughter, le trio composé de la chanteuse Elena Tonra, le guitariste Igor Haefeli et le batteur Remi Aguilella sortira le disque Not to Disappear chez 4AD. Le disque fait surtout suite à l’explosion du groupe qui tape pratiquement les 800k fans Facebook et a suffisamment de talent pour ne pas se reposer sur de très gros succès. Parmi eux, on compte le titre « Youth » qui, trois ans après sa découverte, fout toujours le cœur du public en vrac. Et qui sur scène n’en finit toujours pas de renverser les verres devenus terriblement secondaires. On n’oubliera pas non plus la reprise pas joyeuse du « Get Lucky » des Daft Punk et Pharell. Voici la retranscription de notre rencontre.
