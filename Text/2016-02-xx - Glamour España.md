@@ -1,18 +1,19 @@
 ## Club Música
 
-<p align="center">
-# EL #INDIE HA MUERTO
+# EL #INDIE HA MUERTO 
 **(AUNQUE NO LO PARECE)**
 
+<p align="center">
 LA ETIQUETA MAS USADA DE LA ULTIMA DECADA, TOCA A SU FIN. EL UNDERGROUND MILLENNIAL ASI LO HA DICTADO.
-
+</p>
+<p align="center">
 Texto: ELENA R. BALLANO. Fotos: AARON SERRANO
 </p>
 
 # Daughter
 # SEGUNDO ROUND DE DREAM POP
 
-<img src="/Backup/2016/2016-02-xx/f0090-01.jpg" align="left">
+<img src="/Backup/2016/2016-02-xx/f0090-01.jpg" align="right">
 
 Destacar dentro de la escena artística londinense no es tarea fácil; una misión todavía más compleja si la nostalgia es el hilo conductor de tu repertorio musical. Aún así, Daughter lo logró gracias a su disco debut, un éxito que va camino de repetir con Not to Disappear, su recién estrenado segundo trabajo.
 
