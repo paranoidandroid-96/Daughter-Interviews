@@ -1,9 +1,8 @@
 <img src="/Images/Francesca Jane Allen/Daughter-3-CreditFrancescaAllen.jpg">
 
-<p align="center">
 # Daughter :: ”Drummers hebben ook gevoelens”
+
 Joris Peeters
-</p>
 ---
 <p align="right">
 19 januari 2016
