@@ -79,7 +79,7 @@ January, 26 – Beckett University, Leeds, UK \
 January,  27 – Rock City, Nottingham, UK \
 January, 28 – The Forum, London, UK \
 January,  30 – Gaîté Lyrique, Paris, France \
-January, 31 – Kantine, Cologne, Germany \
+January, 31 – Kantine, Cologne, Germany 
 
 February dates: \
 February,  1 – Paradiso, Amsterdam, Netherlands \
@@ -89,7 +89,7 @@ February, 5 – Debaser Medis, Stockholm, Sweden \
 February, 7 – Kesselhaus, Berlin, Germany \
 February, 8 – Technikum Munich, Germany \
 February, 9 – Kaufleuten, Zurich, Switzerland \
-February, 10 – AB, Brussels, Belgium \
+February, 10 – AB, Brussels, Belgium 
 
 4AD	BBC	Ben Howard	Brooklyn	Daughter	Elena Tonra	If You Leave	Jeff Buckley	London	Nicolas Vernhes	Not to Disappear	Sarah Shaw	The National	tour dates
 
