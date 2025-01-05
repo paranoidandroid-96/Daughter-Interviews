@@ -60,7 +60,7 @@ Words: **Milo Wasserman**
 25 **Newcastle** O2 Academy \
 26 **Leeds** Beckett University \
 27 **Nottingham** Rock City \
-28 **London** Forum SOLD OUT \
+28 **London** Forum SOLD OUT 
 
 [Buy Clash Magazine](http://www.clashmusic.com/tags/issue) \
 Daughter, Interview
