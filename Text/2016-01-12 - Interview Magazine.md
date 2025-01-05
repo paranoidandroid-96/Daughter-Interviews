@@ -1,6 +1,8 @@
 # Daughter Refuses to Disappear
 <p align="center">
-By Ilana Kaplan \
+By Ilana Kaplan
+</p>
+<p align="center">
 January 12, 2016 
 </p>
 
