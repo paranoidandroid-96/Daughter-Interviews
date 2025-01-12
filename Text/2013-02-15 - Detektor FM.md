@@ -24,8 +24,7 @@ Nach zwei veröffentlichten EP’s bringen Daughter im März nun endlich ihr Deb
 Ob dafür wirklich Grund besteht, werden wir im März sehen, wenn If You Leave in die Läden kommt.
 
 
-
-    Daughter – offizielle Webseite
-    Daughter – bei Facebook 
+[Daughter – offizielle Webseite](http://www.ohdaughter.com/)
+[Daughter – bei Facebook](https://www.facebook.com/ohdaughter)
 
 Redaktion: Elisabeth Strecker
