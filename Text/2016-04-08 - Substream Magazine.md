@@ -1,7 +1,7 @@
 # “Our intention was clearer” — Daughter talks battling writer’s block and exploring new influences
 Editorial	Interviews	new-site	by Brian Shultz - Apr 8, 2016
 
-<img src="/Images/DSC_6430.jpg">
+<img src="/Images/Anam Merchant/DSC_6430.jpg">
 
 photo: Anam Merchant
 
