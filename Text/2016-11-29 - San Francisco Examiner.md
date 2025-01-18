@@ -3,6 +3,7 @@
 By Tom Lanham Nov 29, 2016
 
 <img src="/Images/Sonny Malhotra/Daughter-1-CreditSonnyMalhotra.jpg">
+
 From left, Igor Haefeli, Elena Tonra and Remi Aguilella are Daughter. (Courtesy Sonny Malhotra) \
 By Tom Lanham 
 
