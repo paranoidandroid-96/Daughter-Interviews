@@ -1,9 +1,11 @@
 # Daughter's Music Is As Therapeutic For You As It Is For Lead Singer Elena Tonra
 ## "I’ve just been trying to process events in my life that I can’t talk to anyone about."
 
-<img src="/Text/Resources/559afcd713000012006355a5.jpeg">
+<img src="/Text/Resources/559afcd713000012006355a5.jpeg" height=10% width=10% align="left"> 
 
 **By Kira Brekke**
+
+<br clear="left">
 
 Nov 7, 2016, 02:21 PM EST |Updated Nov 11, 2016
 

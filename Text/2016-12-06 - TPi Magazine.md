@@ -1,9 +1,11 @@
 # The Touring Family Behind Daughter
 
-<img src="/Images/3A6A8029.jpg">
-
 <p align="center">
-*I’m not entirely sure who coined the term neo folk rock, but it seems to fit well for London-based electronic trio, Daughter. Fronted by Briton Elena Tonra, alongside Swiss-born guitarist Igor Haefeli and French drummer Remi Aguilella, the band are developing a live show as enchanting as their ethereal sound. Kelly Murray speaks to the young crew helping Daughter deliver visual beauty and audio clarity on the road.*
+<img src="/Images/3A6A8029.jpg">
+</p>
+
+*<p align="center">
+I’m not entirely sure who coined the term neo folk rock, but it seems to fit well for London-based electronic trio, Daughter. Fronted by Briton Elena Tonra, alongside Swiss-born guitarist Igor Haefeli and French drummer Remi Aguilella, the band are developing a live show as enchanting as their ethereal sound. Kelly Murray speaks to the young crew helping Daughter deliver visual beauty and audio clarity on the road.*
 </p>
 
 **Having begun his relationship with the band six years ago, as FOH engineer and tour manager, Neil Dodd – who has since taken up the reins as FOH / PM – could often be found driving Daughter up and down the country the way most DIY-influenced bands start out, forming bonds that spawn a very personal and respectful way of working. “I was driving to every church they played in, in some very, very cold conditions!” he reminisced. “We love playing churches and older venues like that, because it’s often such a beautiful setting with a different vibe than those found in modern venues. The acoustics you get in churches meant we could use the reverb of rooms, which helped out with their sound a lot.”**
@@ -20,8 +22,10 @@ When it comes to his suppliers, Dodd knows what he wants in a vendor, and why th
 
 O’Riordan furthered: “I met Sam Tamplin, the director of TSL, a long time ago, when he started a small lighting company operated from his grandma’s garage and his dad’s front room! I used to tag along to events at weekends, and after a few years, his company really took off.  “Every time I walk into that warehouse, it amazes me how much they’ve grown – it’s got a special place in my heart. I’ve watched it grow from being their first employee to it now employing over 40 people. In North America, we use Martin Kelley from Christie Lites, because they follow a similar ethos to TSL, in their immaculate prep, equipment and service.”
 
-<img src="/Images/Zuzanna Sosnowska/465125306_9291450004200906_6440695431796971730_n.jpg" align=right>
-“The unity between visual and audible creativity excites me,” LD Sam O’Riordan has enjoyed the challenge of designing his first electronic music tour.
+*<p align="right">
+<img src="/Images/Zuzanna Sosnowska/465125306_9291450004200906_6440695431796971730_n.jpg" height=50% width=50% align="right">
+“The unity between visual and audible creativity excites me,” LD Sam O’Riordan has enjoyed the challenge of designing his first electronic music tour.*
+</p>
 
 Dodd continued: “Our freighting company, EFM have also been brilliant; we did a run of crazy festivals going from Milan to Lithuania in a couple of days and they didn’t even break a sweat! They send a driver out and crack on – our gear always gets there and there’s no fuss whatsoever.”
 
@@ -40,7 +44,8 @@ Hickey explained: “I’m already using every input and bus on the SD11i for th
 Dodd agreed: “The transition between using an SD10 and SD11i is actually really easy because the Stealth Core 2 engine software allows you to do so much in a small unit. That’s the thing about using DiGiCo, every time you come up against something and ask the question ‘can it do this?’, the answer is always ‘yes!’”
 
 <img src="/Images/IMG_8176.jpg">
-FOH Engineer and Production Manager Neil Dodd; Backline Tech Toby O’Pray; Lighting Designer Sam O’Riordan, Tour Manager Cameron Stewart, Monitor Engineer Jamie Hickey and TSL Lighting Tech George Doherty
+
+*FOH Engineer and Production Manager Neil Dodd; Backline Tech Toby O’Pray; Lighting Designer Sam O’Riordan, Tour Manager Cameron Stewart, Monitor Engineer Jamie Hickey and TSL Lighting Tech George Doherty*
 
 Hickey continued: “To aid the change of consoles we’re both using Pi Engineering X-Keys and an app called ControllerMate which allows us to add extra macro keys to the SD11i, using a simple 1in-1out MIDI interface. I’ve currently got 28 macro keys to play with instead of the built in eight. By adding these extra keys, it means work flow is as quick as on the bigger SD10.
 
@@ -57,8 +62,11 @@ He said: “They want a full-on, immersive experience on stage. They want it rec
 Hickey and Dodd have put a lot of thought in to the microphone choices for the Daughter setup. Each of the three guitar cabs are stereo mic’d, using pairs of AKG 414XLS, AKG 414 Xlii and Audio-Technica 4040’s. There are DPA 4099’s on the toms, brass and percussion; DPA 2011’s on the snares, vibes and ride cymbal; and perhaps most importantly, no less than six DPA d:facto’s for vocals.
 
 <img src="/Images/3A6A7877.jpg" align="right">
-Monitor Engineer Jamie Hickey with his DiGiCo SD10 console
 
+*<p align="right">
+Monitor Engineer Jamie Hickey with his DiGiCo SD10 console*
+</p>
+  
 Dodd describes the d:facto as: “Totally game changing. We went over to Copenhagen to see their factory, and what they create there is nothing short of genius. There are parts that go into those microphones that are microscopic. Honestly, the components are so intricate, it blew my mind. Over the years I’ve gone through just about every vocal mic going to try and get the right kind of sound for Elena. As soon as we switched to DPA, we knew we’d found it.”
 
 The band is all on IEMs, using Sennheiser SR300 G3 transmitters with Jerry Harvey Audio JH16’s and Rev33 Reds, the choice of Hickey’s. “If you’re going to be listening through something that sounds rubbish, there’s no point in having in-ears, is there? The detail in the top end is fantastic with JH Audio; I won’t use anything else.”
@@ -78,7 +86,10 @@ ARCs were used for both in and out fill, and KARA lip fills were deployed to cov
 LD O’Riordan came into the fold at the end of the last album campaign. “I’ve really enjoyed the challenge,” he smiled. “Because my background was in pop and rock and this was the first time I’d worked with folk and electronic music. You could say their sound is quite gentle, but there are tunes that are heavy too and that makes for an excellent dynamic when you’re designing lighting.
 
 <img src="/Images/3A6A7870.jpg" align="right">
-Lighting Tech George Doherty with LD Sam O’Riordan and his grandMA set up
+
+*<p align="right">
+Lighting Tech George Doherty with LD Sam O’Riordan and his grandMA set up*
+</p>
 
 “Igor [Haefeli, guitarist] is a very creative guy, not just audibly, but visually too, so we worked on the look of the show together. The band is a three piece, predominantly, although we have the extra musicians on this UK run. When we were thinking about the design in terms of shapes, the most obvious for a three piece on stage for the majority of shows was a triangle. We quickly decided on a very clean look allowing for big open spaces, yet utilising and emphasising depth effectively. In doing this we flew five 1.5m wide grey sails, arranged in a ‘V’ formation, one sat centre and four at a 35° angle heading down stage. The original plan was to project onto these sails with video, but reflecting on cost, we quickly realised this wouldn’t be a viable option within our budgetary restraints.
 
@@ -93,7 +104,8 @@ Lighting Tech George Doherty with LD Sam O’Riordan and his grandMA set up
 For control, O’Riordan uses his trusty MA Lighting setup; a grandMA OnPC Command Wing and a grandMA Fader Wing. “The great thing about this MA setup, is that I have the full functionality in terms of parameter count of an MA2 Light, with a tracking back-up, that fits into a 1610 Peli, I can fly it everywhere – pretty revolutionary!”
 
 <img src="/Images/Josiah-Van-Dien-ELENA.jpg">
-The implementation of DPA’s d:facto range was described as “totally game changing” by FOH Engineer Neil Dodd.
+
+*The implementation of DPA’s d:facto range was described as “totally game changing” by FOH Engineer Neil Dodd.*
 
 With the band’s finale taking place in their homebase of London, the show had to be spectacular. And O’Riordan relished the opportunity: “Brixton was a great show. The intricacy of their music makes this a really exciting tour to work on, yet a challenging show to light. There’s so much detail to pick out and highlight, even more challenging sometimes is to leave it alone and allow the music room to resonate with the audience without distraction. Yet framing a song with a visual representation, an environment in which to effectively deliver the message behind its origin is important. Elena, and the band are such beautiful songwriters, that less is so often more within a large portion of their set.
 
