@@ -10,7 +10,7 @@ Elena Tonra of London folk-rock trio Daughter takes us behind the scenes at thei
 
 To celebrate the North American release of their quietly stunning debut, If You Leave, London trio Daughter played two sold-out shows at New York’s Bowery Ballroom, the second of which, on May 1st, we documented. “It was daunting!” pint-sized singer-guitarist Elena Tonra recalls a couple of weeks later. “I was pretty nervous, but the audiences both nights were so welcoming and really enthusiastic.” Indeed, as soon as the band took the stage and Tonra began to play the delicate guitar part of “Shallows,” their album’s hushed and emotional closer, the crowd grew silent and focused. They were there to be moved—and Daughter delivered. ELLEN CARPENTER
 
-> [NOTE!] 
+> [!NOTE] 
 > This is a transcript/story draft kindly submitted by Ellen Carpenter on 2025-03-13, so it has differences with the published article.
 
 ## Slide 1
@@ -56,7 +56,7 @@ Not really, nothing kind of crazy. No yoga moves or anything. I don’t know. We
 
 For this tour, it’s pretty much the same for the whole time. We just change around a few things at the beginning to iron out [unaudible]. It tends to be kind of the same. I think its comforting to have that as a constant. It’s quite nice to have a similar setlist every night. But we’ll probably change it up a bit for the rest of the tour. I quite like to get [unaudible] in [unaudible].
 
-> [NOTE!] 
+> [!NOTE] 
 > Probably a picture of the setlist had LP written on it
 
 LP
