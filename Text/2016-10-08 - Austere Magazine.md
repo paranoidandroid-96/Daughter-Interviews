@@ -1,6 +1,6 @@
 # Depth with Daughter
 
-<img src="/Text/Resources/daughter.png">
+<img src="/Images/daughter.png">
 
 by Natasha Brito November 22, 2016
  
@@ -42,5 +42,5 @@ I think my biggest boost of happiness in life comes from talking to other people
 
 I think we are all here completely by accident. I don’t think we were ever supposed to be here. It actually makes our achievements all the more incredible, weird creatures building and creating and talking and falling in love with each other – when we are not fighting and being awful to one another, we can actually be really beautiful things.
 
-> ** What is your mantra in life?
+> **What is your mantra in life?** \
 > Be kind
