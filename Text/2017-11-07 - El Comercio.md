@@ -1,6 +1,6 @@
 ## Tercer parlante
 
-<img src="/Text/Resources/autor.jpg" height=10% width=10% align="left">
+<img src="/Text/Resources/autor.jpg" height=10% width=10% align="left"> \
 **Fernando Alayo Orbegozo**
 <br clear="left"/>
 
