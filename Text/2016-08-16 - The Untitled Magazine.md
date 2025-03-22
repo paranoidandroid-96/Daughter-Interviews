@@ -4,7 +4,7 @@ August 16, 2016
 # DAUGHTER ON MUSIC, SEX, AND POLITICS
 by Jasmine Williams	
 
-<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
+<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg"> \
 *From left to right: Remi Aguilella, Elena Tonra, and Igor Haefeli. Image courtesy of Daughter.*
 
 On stage at [Panorama Music Festival](https://untitled-magazine.com/panorama-music-festival-debuts-with-3-days-of-sun-song/), the European band, [Daughter](http://ohdaughter.com/) made a surprising move when they segued from new track, [“No Care](https://geo.itunes.apple.com/us/album/no-care/id1044469068?i=1044469251&at=11l5JU&mt=1&app=music),” an aggressive and quick tempoed recollection of empty sexual experiences, to [“Youth](https://geo.itunes.apple.com/us/album/youth/id510201317?i=510201332&at=11l5JU&mt=1&app=music),” the emotional hit single that put them in the ears and hearts of the indie music world. Although unexpected, the transition made sense, their latest album, [“Not To Disappear](https://geo.itunes.apple.com/us/album/not-to-disappear/id1044469068?at=11l5JU&mt=1&app=music),” features a surprisingly wide range of emotions – from heartbreak to anger to sympathy and back again. Since forming in 2010, British singer, Elena Tonra, Swiss guitarist Igor Haefeli, and French drummer, Remi Aguilella have released two albums and toured the world, getting a bit older and gaining a vast amount of life experiences along the way. “Not To Disappear” showcases this new maturity with a rawer sound and lyrics that are much more personal than previous releases but somehow still have the ability to resonate with the experiences of listeners everywhere.
@@ -25,7 +25,7 @@ UM: How did you end up forming Daughter?
 
 ET: We all went to the same music school. It’s called [ICMP](http://icmp.co.uk/) in Kilburn, North London. Igor and I were in the same course, it was a one-year song writing diploma. It was the first year they started it and they didn’t really know what they were doing but it was fun. We got to meet other musicians and writers and that was really cool. Then Remi was doing the drum degree at the same place so we kind of all got to know each other through this assignment we had to do that involved us working with Remi for a project at school. After we all left school, that was when we really formed the band. We were kind of admiring each other from afar while being in there.
 
-<img src="/Images/Francesca Jane Allen/Daughter-2-CreditFrancescaAllen.jpg">
+<img src="/Images/Francesca Jane Allen/Daughter-2-CreditFrancescaAllen.jpg"> \
 *Image courtesy of Daughter.*
 
 UM: You released your current album [Not to Disappear](https://geo.itunes.apple.com/us/album/not-to-disappear/id1044469068?at=11l5JU&mt=1&app=music) in January. How did the process differ from your first album, [If You Leave](https://geo.itunes.apple.com/us/album/if-you-leave/id613743866?at=11l5JU&mt=1&app=music)? I know you had a bunch of touring under your belt by the time of the second album and everyone was obviously a little older too. Did you feel like you had more life experience? You also recorded in New York.
@@ -60,7 +60,7 @@ ET: It was like a labor! We actually had to give birth to that song.
 
 RA: For me, [“Made of Stone”](https://geo.itunes.apple.com/us/album/made-of-stone/id1044469068?i=1044469254&at=11l5JU&mt=1&app=music) just because it was one of the songs that felt the most untouched. You’re almost listening to a demo – the first intention of an emotion. That’s what I like about it.
 
-<img src="/Images/ElenaTonra_Panorama.jpg">
+<img src="/Images/ElenaTonra_Panorama.jpg"> \
 *Daughter’s Elena Tonra on stage at Panorama Music Festival, July 2016. Image by The Untitled Magazine.*
 
 UM: You have a bunch of festivals coming up and you have a few more solo shows in the US. Then you have a pretty extensive European tour. Given that you’re going to Europe and you’re all from different countries, do you have any opinions or thoughts on the current political situation going on right now with Brexit and the migrant crisis?
