@@ -2,10 +2,12 @@
 
 # Daughter
 
- 'It made me think in a different way… about what I felt as a teenager or how I would feel in Chloe’s shoes'. Daughter share their experiences of writing a videogame soundtrack. 
+'It made me think in a different way… about what I felt as a teenager or how I would feel in Chloe’s shoes'. Daughter share their experiences of writing a videogame soundtrack. 
 
 ---
-By Lucy Doyle	31 Aug 2017	6 min read
+
+By **Lucy Doyle**	31 Aug 2017	6 min read
+
 ---
 
 **Over the last five years, London trio Daughter have built a solid reputation for their out-there dream-pop and gauzy guitar licks.**
