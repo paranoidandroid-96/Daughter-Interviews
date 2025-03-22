@@ -84,18 +84,18 @@ TONRA [laughing]: Okay. Um, that was dirty banter. \
 **Were there new influences that came into play, musical, literary or otherwise?** \
 **TONRA:** I think musically, from If You Leave to Not To Disappear, we, especially for me, I was becoming a lot more interested in electronic music and especially very ambient—
 
-**More downbeat.**
+**More downbeat.** \
 **TONRA:** Yeah, yeah. And I think that, even, we all tried to use that a bit more in—for a long time, I’d only ever written on guitar, and then when it came to this album I was like, I really want to make tracks on Logic and use my computer as a songwriting tool. So that was introducing ideas into demos—especially toward the start of making this record, we each brought some ideas that we’d been working on, and found a lot of them actually had electronic elements in them, so we’d obviously— \
 **HAEFELI:** Yeah, that was one of the few—we didn’t have a plan, but we definitely had, like, a few things that we wanted to explore more and one of those was the electronic side of what we had kind of touched on a little in If You Leave. There’s a few bits here and there, but we wanted to make more of that side of it. \
 **AGUILELLA** We had a lot of time to prepare as well. We rented a studio in London—or a room that we set up as a studio to demo all of our songs. So basically as long as we wanted, we could go in this place and come up with different ideas. A lot of the drums, for example, on If You Leave were done coming up with the parts or knowing the part was gonna work in the studio itself, whereas for Not To Disappear it could be done in the demoing process and then I could sit on it for a little while and say, “Maybe this is not what this song needs” eventually. So it felt easier. 
 
-**Any musical qualities you were trying to convey on the album? Or any you noticed come to life after that?**
+**Any musical qualities you were trying to convey on the album? Or any you noticed come to life after that?** \
 **HAEFELI:** Musically, I think again, the electronic side for sure. That was the idea of…I really wanted it to have a contrast between the warm, organic sounds and something a bit colder and harsher as well. Partly because of the idea of loneliness. Whether it’s being alone—like for example in a larger city. Just give it a bit of that slightly sterile sound in a way. But then also have real moments of release and where the sounds are blooming in a warmer or enveloping way. Just kind of make everything a little more bold and kind of there instead of dissipated, defused. \
 **TONRA:** Some of the songs have a bit more of a live sound to them than maybe anything on the first album. And that was our goal, anyway, was to record everything in the same place, which we hadn’t done for the first album. It had kind of been recorded all over the place. \
 **HAEFELI:** Like a jigsaw. \
 **TONRA:** Yeah, pieced together. This album was everything—even though we had demos, which we had recorded, pretty much all in New York in that one place. I think it feels like it’s got this core around everything, it’s harmonious. But I think our sound probably changed while we were playing live, touring on If You Leave, and dynamically I think we’ve kind of gotten louder, more aggressive as time’s gone on. Our pedal collection and guitar collections [have] grown, so that’s probably something that we wanted to obviously represent in the record—how that sound has gotten a little more aggressive.
 
-**I was replaying If You Leave the other day for the first time in a while and did notice the change—it’s fuller, more confident and forceful.**
+**I was replaying If You Leave the other day for the first time in a while and did notice the change—it’s fuller, more confident and forceful.** \
 **TONRA:** That’s good to know. [Laughs.] I don’t know, really. The first album is just feeling your way around. You don’t really know what you’re doing or what you’re trying to create. With this one we were a bit more focused maybe. \
 **HAEFELI:** I think it’s exactly that. On the second record our intention was clearer. We knew more what we wanted. We knew how we wanted to do it, and all those things. It takes time to figure it out and to make everyone happy but ultimately when we got to New York we had a fairly clear idea in mind of what the record needed to be. S
 
