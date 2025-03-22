@@ -43,7 +43,7 @@ Creo que es la primera vez que escribo acerca de ellas. En el primer disco inten
 
 Es duro ver a mi mamá sintiendo eso, cuando mi abuela es alguien muy lleno de alegría y es muy animada; una señora italiana muy enérgica que, aunque no sabe cómo me llamo, igual me da un beso y se ríe. Para ella todo es muy presente, entonces no tiene sentido del tiempo o siquiera sabe dónde está o quién es, o quién soy yo, pero el presente, lo que está al frente, es lo más importante, y su cerebro se enfoca en ese segundo. Es algo interesante y triste. Me gustaría que recordara cuando me iban a dejar al colegio y cosas así, pero está bien, y es lo que es ahora. La memoria define lo que somos, pero en este caso ves cómo eso puede cambiar, entonces esa es una canción de amor para ellas, básicamente porque las amo.
 
-<img src="/Images/Sonny Malhotra/Daughter_by_Sonny_Malhotra-9770.jpg">
+<img src="/Images/Sonny Malhotra/Daughter_by_Sonny_Malhotra-9656.jpg">
 
 **La música en general es un “club de hombres”, entonces se me hace importante preguntarte a ti, como mujer en la industria, ¿cómo sientes o has visto el machismo o la misoginia en medio de tu trabajo en la música?**
 
@@ -55,8 +55,8 @@ Igual, he sido una afortunada en poder trabajar con gente buena y excelente en l
 
 Gracias por las preguntas, y ojalá que en noviembre tomemos esas copas de vino, pero después del show, no antes *(risas)*.
 
-<p align="right">
-[*Por Manuel Toledo-Campos*](https://web.archive.org/web/20200809195913/https://twitter.com/toledo_campos)
+**<p align="right"> 
+[Por Manuel Toledo-Campos](https://web.archive.org/web/20200809195913/https://twitter.com/toledo_campos)**
 </p>
 
 [<img src="https://i.ytimg.com/vi/Dt8MZXuSKH8/maxresdefault.jpg">](https://www.youtube.com/watch?v=Dt8MZXuSKH8)
