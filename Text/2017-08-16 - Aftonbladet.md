@@ -47,8 +47,7 @@ https://www.youtube.com/watch?v=0lQketFfKZ8
 [<img src="https://static.cdn.asset.aparat.cloud/avt/8042778-2389-l__4979.jpg">](https://www.aparat.com/v/g059m6z)
 
 
-<img src="/Text/Resources/920.jpg" align="left">
-
+<img src="/Text/Resources/920.jpg" height=10% width=10% align="left">
 
 **Effie Karabuda** \
 effie.karabuda@aftonbladet.se \
@@ -63,7 +62,7 @@ Taggar daughter, dontnod entertainment, elena tonra, igor haefeli, life is stran
 
 **OM EFFIE**
 
-<img src="/Text/Resources/effiequad3.jpg">
+<img src="/Text/Resources/effiequad3.jpg" height=10% width=10% align="left">
 
 Effie Karabuda är 25 år och din personliga spelguru. Hon säger att hon älskar alla spel – men egentligen vurmar hon mest för rollspel där man blir kär i biffiga riddare eller indiespel som retar tårkanalerna. Effie fyller Spela med alltifrån "Är Yoshi verkligen en dinosaurie?"-debatter och rage-recensioner till de hetaste händelserna i spelvärlden just nu.
 
