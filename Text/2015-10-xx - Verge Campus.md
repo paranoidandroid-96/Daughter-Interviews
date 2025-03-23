@@ -43,7 +43,7 @@ Left to Right: Remi Aguilella, Elena Tonra, Igor Haefeli
 
 **Hil:** Sounds very familiar, very much like Berklee!
 
-<img src="/Images/tumblr_obbse7ov5p1rpu2hjo1_1280.jpg">
+<img src="/Images/Wilson Lee/tumblr_mrk89qosmS1rpu2hjo1_1280.jpg">
 Photo Credit: Wilson Lee Photography
 
 **Hil: Who or what inspires you when you’re writing?**
@@ -118,7 +118,7 @@ Elena and Igor were truly some of the kindest, most humble people I’ve met and
 
 **Thank you Daughter and Glassnote Records for setting this up with me and for making this experience a truly memorable one!**
 
-<img src="/Images/tumblr_nw67eiFoJg1rjeo3to1_1280.jpg">
+<img src="/Images/463552523_8232622946866585_2166833645372482865_n.jpg">
 
 To follow Daughter on Twitter, Instagram, Facebook etc. Make sure to check out their social media sights below!
 
