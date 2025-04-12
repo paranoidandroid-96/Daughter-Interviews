@@ -42,7 +42,7 @@ To celebrate the North American release of their quietly stunning debut, If You 
 
 “I tend to look down a lot at my feet, but I enjoy seeing the audiences faces and engaging with people. Especially when they’re singing the lyrics back to you— it’s such an incredible feeling to see people singing the words that you wrote in the bedroom by yourself. It’s pretty surreal.”
 
-I was pretty nervous for the Bowery shows. It was a little bit, you know, we felt nervous. I think they went really well. It was very exciting to be able to play that space two nights in a row. And all the people. I think it went well! I twas just kind of daunting. But it went amazing! The audiences both nights were so welcoming and really enthusiastic and not [unaudible].
+I was pretty nervous for the Bowery shows. It was a little bit, you know, we felt nervous. I think they went really well. It was very exciting to be able to play that space two nights in a row. And all the people. I think it went well! It was just kind of daunting. But it went amazing! The audiences both nights were so welcoming and really enthusiastic and not [unaudible].
 
 We’re not the most [unaudible] band in the world, we’re not the most comfortable looking onstage so it’s really nice to have some people in the audience who make you feel at ease. It was very nice.
 
@@ -73,7 +73,7 @@ The lighting designer at the Bowery show was amazing. He wanted to know what we 
 
 ## Feeling off stage?
 
-It’s a weird combination.—there’s a kind of relief. There’s definitely a buzz – there’s definitely a high you get from having the experience of people coming to watch you. It’s a very [unaudible] thing to do – stand up in front of people and eseentially tell them all your secrets in song. It’s kind of weird! But it’s an amazing feeling. 
+It’s a weird combination.—there’s a kind of relief. There’s definitely a buzz – there’s definitely a high you get from having the experience of people coming to watch you. It’s a very [unaudible] thing to do – stand up in front of people and essentially tell them all your secrets in song. It’s kind of weird! But it’s an amazing feeling. 
 
 It’s actually quite nice when you make mistakes because it makes the night memorable in a way. 
 
