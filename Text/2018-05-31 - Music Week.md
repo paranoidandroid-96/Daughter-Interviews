@@ -35,8 +35,8 @@ Ahead of the Ivors, which takes place today (May 31) at London’s Grosvenor Hou
 
 > *Sync is really beautiful to spread your music in different ways*
 
-<p align="right">
-*Elena Tonra, Daughter*
+*<p align="right">
+Elena Tonra, Daughter*
 </p>
 
 **When you started the band did you think your music would be used for sync and do you think it’s something for other artists to look into?**
