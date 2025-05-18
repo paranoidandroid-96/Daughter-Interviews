@@ -1,0 +1,27 @@
+# Desamor en los tiempos del Brexit
+# Ex:Re
+
+## La cantante de Daughter se estrena en solitario con un disco y proyecto llamado Ex:Re en el que relata de manera cruda y descarnada una ruptura sentimental que tuvo su lado positivo: la inspiración para poder componer algunas de las mejores canciones de su carrera a ritmo de pop desnudo, estructuras libres y arreglos impresionistas.
+
+Por NACHO RUIZ
+
+A Elena Tonra el desamor la pilló por sorpresa. La cantante de Daughter rompió con su pareja y decidió grabar un disco al respecto. *“Por un lado, supuso una especie de terapia buscada. A la vez, yo seguía componiendo mis canciones como de costumbre y era inevitable que mi realidad sentimental se colara en ellas”*, afirma en una salita de las oficinas de Popstock!, su distribuidora en Madrid.
+
+Conviene explicar bien la situación porque se presta a engaño y es un poco culebrón. Elena fue pareja de Igor Haefeli, su compañero en el proyecto Daughter. Se separaron y siguieron con la banda. Posteriormente, Tonra inició una nueva relación, la que ahora se ha acabado y que ha servido como inspiración para Ex:Re, su proyecto y debut homónimo en solitario de 2018 (aunque físicamente no se editó hasta el pasado 1 de febrero), publicado por 4AD, su sello de siempre. *“Mientras lo preparaba, nunca imaginé que la gente pudiera creer que hacía referencia a Igor, aunque ahora lo pienso y quizá tenga lógica. Menos mal que él sabe que no es así”*, confiesa entre risas.
+
+La grabación de **“Ex:Re”** tuvo dos protagonistas fundamentales: Fabian Prynn, que se encargó de baterías, percusiones y de la producción general, y Josephine Stephenson, que ya había colaborado con Daughter y añadió texturas vocales y violonchelo. *“A Josephine ya la conocía y aquí ha creado sonidos de máxima belleza. Con Fabian, en cuanto empezamos a trabajar, supimos que iba a funcionar”*, sostiene Tonra.
+
+Alta, guapa y con unos enormes y expresivos ojos, Elena confiesa sentirse *“nerviosa y aliviada”* ante la perspectiva de la publicación de un trabajo que tardó mucho en escribirse y poco en grabarse. *“Las letras son una especie de notas o cartas que me mandaba a mí misma. La otra persona flota como un fantasma en ellas, pero tratan más sobre mí que sobre él”*. El resultado es un álbum intimista y confesional en el que los versos se aposentan sobre estructuras abiertas y arreglos minimalistas de pop-rock suave y marchamo nocturno.
+
+*“En principio la idea es que sea un proyecto aparte, una nota al margen que llega mientras Daughter habíamos decidido tomarnos un descanso para centrarnos en otros asuntos* –explica mientras apura una taza minúscula de café–. *Aunque tampoco descarto que en el futuro lo siga utilizando”.* El nombre, que ella pronuncia igual que *x-ray*, significa literalmente *“regarding ex”* (“en relación a mi ex”) y también es un juego de palabras con la fórmula “RE”, que sirve como respuesta a un correo electrónico en el mundo anglosajón. *“De ahí la sensación epistolar que desprenden las canciones”*, explica.
+
+La ayuda terapéutica estaba ahí: *“Sé que es un cliché total, algo más viejo que la música, pero estoy convencida de que si no hubiera hecho este disco todavía tendría una mezcla de falsas esperanzas y de sensación de asunto inconcluso. Que mi pareja me dejara me sumió en un estado de shock. Hasta que no me puse a escribir sobre ello no reaccioné”*, alega la londinense.
+
+Un tema tan extraordinariamente íntimo tiene que resultar incómodo por definición. En la entrevista resulta muy difícil no sentirse un cotilla preguntando por aspectos personales. También lo es no alegrarse cuando la cantante británica tranquiliza al interlocutor asegurando que se encuentra *“muy bien”*. Ella incide en la conexión con cualquiera que escuche su música, sea el público o un periodista: *“Sí, hay un elemento de pudor. A veces me pregunto: ‘¿Qué hago hablando de esto?’. Pero, al final, la música trata de comunicar ideas y sentimientos”*, señala. El desnudo emocional es tal que confiesa haber escrito cosas en el disco que no le había dicho a su ex. *“Igual no se da cuenta”*, se vuelve a reír. Esta intimidad extrema es el motivo por el que, según Tonra, *“era imposible que estas canciones formaran parte de un álbum de Daughter. Mira que nuestras letras también eran personales, pero esto es ya otro nivel”*.
+
+Elena nació en Londres hace 29 años, pero tiene ascendencia irlandesa e italiana, países que visita regularmente. Entremedias de su ruptura personal, se cuela otra a nivel nacional: el Brexit. *“Exacto, es como si todo el país estuviera sumido en una separación de pareja y esa sensación se filtra en cada cosa que hacemos. Quizá sea porque he vivido siempre en Londres, pero pensé que jamás llegaríamos a es- te situación –afirma extrañada–. Puede también que mi condición transnacional me aleje de los que buscan aislarse. Pero, al mismo tiempo, ¿cómo no vamos a respetar lo que ha decidido la gente democráticamente? Muchos afirman que quieren un segundo referéndum, pero ¿entonces le hacemos caso al resultado del original o del nuevo que se haga? Es lo tremendo de la situación: que no tiene un final bueno. En eso vuelve a ser como cortar con alguien: hagas lo que hagas, vas a sufrir”*, concluye, antes de subir a la azotea del edificio mientras exclama: *“¡Hace más frío aquí que en Londres!”*.
+
+<img src="/Backup/2019/2019-02-01/image-000.png">
+
+Elena Tonra: terapia en la intimidad. **Foto: Alfredo Arias**
+

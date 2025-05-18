@@ -1,0 +1,15 @@
+<img src="/Images/Francesca Jane Allen/Daughter-1-CreditFrancescaAllen.jpg">
+
+# L’arte di essere tristi
+
+---
+
+## I Daughter tornano con un gioiello per cuori dark. La cantante della band ci parla di ispirazione, e di quella volta con Letterman
+
+---
+
+<p align="center">
+di Mario Bonaldi
+</p>
+
+Lo scarno rock da camera dei londinesi Daughter si inserisce bene in quel genere di musica ornata e un po’ smunta in stile Lucy Rose, Ben Howard, Beach House – del resto il loro pezzo Smother, tratto dall’album d’esordio *If You Leave* (2013), è incluso nella compilation “Rainy Day” di Spotify: la sensibilità all’ingrosso dei catalogatori del marketing ha sempre una certa brutale accuratezza. Ma l’epica sofferenza dei testi di Elena Tonra, leader della band, evoca piuttosto la famosa “trilogia dark” dei Cure (*Seventeen Seconds*, 1980; *Faith*, 1981; *Pornography*, 1982) che ha eletto Robert Smith a immortale campione di tutti i cuori sensibili e offesi, pronti a offrire al mondo il proprio struggimento non filtrato. Non a caso i Daughter sono il tipico gruppo che sembra essere più apprezzato dai fan che dalla critica musicale, quest’ultima a volte un po’ a disagio nel commentare liriche come “me and I are not friends”, e simili metafore po’ sovraccariche. Il loro secondo disco, intitolato *Not to Disappear* (2016), è però un deciso passo avanti: canzoni come *Doing the Right Thing* e *No Care* sembrano spingere le possibilità della band verso direzioni opposte ma ancora più promettenti, e *How* è una garbata e immediata gemma pop in stile *Parachutes* dei Coldplay. «Con questo disco abbiamo avuto un approccio molto più diretto, sia dal punto vista dei testi che della musica», racconta Elena Tonra, cantante e chitarrista dei Daughter (sua nonna è di Gropparello, vicino a Piacenza). «Di sicuro la mia poetica nel tempo è diventata meno involuta». Le faccio presente che le critiche al primo album si concentravano sull’eccessiva cupezza dei suoi testi, ma se qualcuno si aspettava un nuovo disco più solare sarà rimasto deluso: «Non posso farci niente, se mi metto a scrivere una canzone è perché sento qualcosa che non funziona. Essere allegra non mi ha mai dato alcun tipo di ispirazione», risponde serena. Elena finisce ogni frase con una risata nervosa, e questo mi fa venire in mente la partecipazione dei Daughter al *David Letterman Show* nel 2012, sulla spinta della popolarità di *Youth*, inno sadcore diventato una sorta di *Creep* dei Radiohead vent’anni dopo. In quell’occasione (è su YouTube) Letterman fa una strana battuta a Elena a proposito di una sua suite all’Hotel Savoy, presumibilmente aperta alle visite delle musiciste in tour. «Non so come gli sia venuta fuori quella frase», dice Elena divertita e perplessa. «Quando abbiamo finito di suonare ho visto che si stava avvicinando e ho pensato “Merda! Dobbiamo anche parlare”». Il mondo è un posto di eventi casuali, e può anche succedere che il re del talk show faccia il viscido con una timida e oscura cantautrice inglese.
