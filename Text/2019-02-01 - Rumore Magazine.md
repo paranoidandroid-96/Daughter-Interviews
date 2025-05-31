@@ -4,8 +4,8 @@
 
 # Intervista a Ex:Re (Elena Tonra): “Prima di questo disco non mi trattavo così bene. Adesso ho imparato a prendermi cura di me stessa”
 
-<p align="center">
-**By:** [**Elia Alovisi**](https://rumoremag.com/author/elia/) | **Date: 01/02/2019**
+**<p align="center">
+By: [Elia Alovisi](https://rumoremag.com/author/elia/) | Date: 01/02/2019**
 </p>
 
 ---
