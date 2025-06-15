@@ -5,7 +5,9 @@
 
 ロンドンを拠点とするバンド、ドーター（Daughter）の紅一点メンバーであるエレナ・トンラ（Elena Tonra）による、「Regarding Ex(元カレについて)」から名付けられたソロプロジェクト「エクス:レイ（Ex:Re)」が始動。2019年1月に発表した同名アルバム『エクス:レイ(Ex:Re)』リリースに先立ち、4ADプレゼンツ・ライブ公演のため来日した彼女にインタビュー。
 
+<p align="center">
 <img src="/Images/Gen Saito/01-25.jpg">
+</p>
 
 ロンドンを拠点とするバンド、ドーター（Daughter）のギタリスト、ヴォーカリスト兼リリシストであるエレナ・トンラ（Elena Tonra）によるソロプロジェクト、エクス:レイ（Ex:Re）。「Regarding Ex(元カレについて)」から名付けられたこのプロジェクトは、恋人との関係が終わった後の時間を綴った、極めてパーソナルかつテーマ性の強いアルバム『エクス:レイ(Ex:Re)』を生み出すためのもの。2019年1月、リリースに先立ち、4AD Presents『DEERHUNTER / GANG GANG DANCE/ Ex:Re』公演のため来日したエレナに話を聞いた。
 
@@ -21,7 +23,9 @@
 
 「今作で大事にしたのは、自分の感情を正しく伝えられているか、表現できているかどうかということ。サウンド面については、ファビアンと相談しながら進めたの」
 
+<p align="center">
 <img src="/Images/Gen Saito/03-03.jpg">
+</p>
 
 **──2017年の秋にドーターの3rdアルバム『Not to Disappear』とゲームのサントラをリリースしているので、今作の制作期間はなかなかタイトだったのではないでしょうか。**
 
@@ -35,7 +39,9 @@
 
 「そうね。私自身、ダイレクトなコミュニケーションが好きだからなのか、メールやSNSの返信や反応が遅いほうで、やりとりからうっかり離脱してしまうこともあって。テキストからは声や感情が見えにくいから、難しいところもあると思う。最近はデートアプリもあるわよね？都会ではなかなか出会いのチャンスもないと言われたりもするから、他の人が使うことには意見はしないけど、私は無理だと思う（笑）！」
 
+<p align="center">
 <img src="/Images/Gen Saito/02-21.jpg">
+</p>
 
 **──歌詞には悲しみ、葛藤や怒りを表現した強い言葉があり、テーマもテーマですし、今作にはかなり産みの苦しみがあったのではと思います。制作期間はどんな日々を過ごしていたのですか？**
 
@@ -49,7 +55,9 @@
 
 「別れることになった時は実はツアー中で、パフォーマンスに影響を与えたくなかったから気持ちをぐっと抑えつけていたの。そんな日々が数ヶ月続いたけれど、制作に打ち込める環境になって、やっと悲しみや怒りを解放することができた。だから当時の私の気持ちは全部アルバムに入っていると思う」
 
-<img src="/Text/Resources/4AD0132CDJP_JK.jpg" align="center">
+<p align="center">
+<img src="/Text/Resources/4AD0132CDJP_JK.jpg">
+</p>
 
 ## Ex:Re『Ex:Re』
 
@@ -60,19 +68,25 @@
 
 ##エクス:レイが選ぶお気に入りミュージック
 
-<img src="/Text/Resources/rosalia.jpg" align="center">
+<p align="center">
+<img src="/Text/Resources/rosalia.jpg">
+</p>
 
 ## Rosalia『El Mal Querer』
 
 「スペインのシンガーソングライターのアルバムでとても美しかった。彼女の声が素晴らしいし、プロダクションも興味深いの。エレクトロニカとフラメンコを融合した感じで、聞いたことのない新しい音楽だと思う」
 
-<img src="/Text/Resources/nils.jpg" align="center"> 
+<p align="center">
+<img src="/Text/Resources/nils.jpg"> 
+</p>
 
 ## Nils Frahm『All Melody』
 
 「先日、ロンドンのバービカンでこのアルバムを再現したライヴを観たの。シンセやピアノをレイヤーで重ねていくクリエイティブなライヴで、アルバムもオーケストラにヴォーカルやエレクトロニクスとミックスしていて、すごくよかった」
 
-<img src="/Text/Resources/sister.jpg" align="center">
+<p align="center">
+<img src="/Text/Resources/sister.jpg">
+</p>
 
 ## Sister Sledge『We Are Family』
 
@@ -80,14 +94,16 @@
 
 [「ヌメロ・トウキョウ」おすすめミュージックリスト](https://numero.jp/tag/music-review/)
 
+<p align="center">
 Photos：Gen Saito　Interview＆Text：Minami Mihama　Edit：Masumi Sasaki
+</p>
 
 [#interview](https://numero.jp/tag/interview/) [#music](https://numero.jp/tag/music/) [#off](https://numero.jp/tag/off/)
 
 
 ## Profile
 
-<img src="/Images/Marika Kochiashvili/EX_RE_by_Marika_Kochiashvili.jpg" height=10% width=10% align="right">
+<img src="/Images/Marika Kochiashvili/EX_RE_by_Marika_Kochiashvili.jpg" height=20% width=20% align="right">
 
 EX:RE（エクス：レイ）NYのインディシーンとも共鳴するUK発3ピースバンド、Daughter（ドーター）の紅一点のボーカリスト、エレナ・トンラ（Elena Tonra）によるソロ・プロジェクトとして始動。2019年2月にソロアルバム『EX:RE』発表。
 
