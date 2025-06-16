@@ -1,6 +1,6 @@
 <img src="/Images/Marika Kochiashvili/EX_RE_by_Marika_Kochiashvili.jpg">
 
-#Ex:Re. Elena Tonra e la scrittura come terapia
+# Ex:Re. Elena Tonra e la scrittura come terapia
 
 Posted on \
 [**1 Marzo 2019**](https://toh-magazine.com/2019/03/interview-exre/) in [**Musica**](https://toh-magazine.com/category/musica/)
