@@ -4,8 +4,12 @@ Culture > Music > Features
 
 ## Chronicling a breakup that Tonra went through a little over a year ago, ‘Ex:Re’ might just be her best work yet, says [Alexandra Pollard](https://www.independent.co.uk/author/alexandra-pollard)
 
-<p align=center">
-<img src="/Text/Resources/alexandra-pollard.png">
+<p align="center">
+<img src="/Text/Resources/alexandra-pollard.png" height=20% width=20%>
+</p>
+
+<p align="center">
+Tuesday 27 November 2018 07:52 GMT
 </p>
 
 <img src="/Images/Marika Kochiashvili/EX_RE_by_Marika_Kochiashvili.jpg">
