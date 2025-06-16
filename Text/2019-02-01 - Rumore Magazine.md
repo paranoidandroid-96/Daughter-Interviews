@@ -12,8 +12,8 @@ By: [Elia Alovisi](https://rumoremag.com/author/elia/) | Date: 01/02/2019**
 
 <img src="/Images/Emma Swann/CNV00035-web.jpg">
 
-<p align="center">
-di [Elia Alovisi](https://rumoremag.com/author/elia/)
+***<p align="center">
+di [Elia Alovisi](https://rumoremag.com/author/elia/)***
 </p>
 
 C’è musica che racconta situazioni e musica che esprime sentimenti. La prima è fatta di dettagli: nomi, luoghi, date che avvicinano la canzone alla novella, il disco al romanzo. La seconda invece è fatta di immagini e sensazioni, di vaghezza. è cantata da un “io” che si rivolge a un “tu”, entrambi contorni di individui più che persone, così da invitare chi ascolta a riempirli con le cose che ha dentro. I [Daughter](https://rumoremag.com/tag/daughter/) tendono a fare musica della seconda categoria. O almeno, la loro canzone più celebre ne è uno dei migliori esempi del nostro millennio finora, insieme a cose come Crystalised degli xx. Quella canzone si chiama Youth e scava nel senso di inadeguatezza e precarietà che caratterizza la vita dei millennial, così come nel tentativo fallimentare di nasconderle a forza di notti selvagge e amori difficili. Uscita nel 2013, è stata il primo gradino che i Daughter hanno scalato per crearsi un pubblico, un mercato e una carriera.
@@ -68,12 +68,12 @@ https://open.spotify.com/embed/album/3i7m2ZYeR1LMVqWxe0y8og
 
 Tags [elena tonra](https://rumoremag.com/tag/elena-tonra/) [ex:re](https://rumoremag.com/tag/exre/) [intervista](https://rumoremag.com/tag/exre/)
 
-<img src="/Text/Resources/29096337b4bb07167149219915f6fc3cfd83eef4a81b1b00bb4b6db86d6df2cc.jpeg">
+<img src="/Text/Resources/29096337b4bb07167149219915f6fc3cfd83eef4a81b1b00bb4b6db86d6df2cc.jpeg" height=20% width=20% align="left">
 
 [Elia Alovisi](https://rumoremag.com/author/elia/)
 
 https://traducocanzoni.wordpress.com/
 
-[Facebook](https://www.facebook.com/elia.alovisi)
+[Facebook](https://www.facebook.com/elia.alovisi) [Twitter](https://twitter.com/elia_alovisi)
 
-[Twitter](https://twitter.com/elia_alovisi)
+<br clear="left"/>
