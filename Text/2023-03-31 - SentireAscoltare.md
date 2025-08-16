@@ -21,7 +21,7 @@ Sarà anche per questo motivo che l’intimismo a cui abbiamo da sempre associat
 
 Un altro punto focale di questo album è legato alle voci, non solo perché Haefeli in più di un brano canta in piena presenza, ma anche perché l’angelica malinconia di **Elena Tonra** tocca vette incredibili, come in *Neptune*. “Ottenuta in una sola take, con lei in evidente stato di grazia” aggiunge il mio interlocutore. A proposito di momenti perfetti in ***Stereo Mind Game***, *To Rage* ne è uno splendido esempio con i suoi versi iniziali: “Where were you going? In deep? Where were you though when we needed you most?”. Haefeli la paragona a un fiume e ritrova il suo dinamismo nel fatto che è stata la prima a essere missata per il disco.
 
-[<img src="https://i.ytimg.com/vi/VEpMj-tqixs/sddefault.jpg">](https://www.youtube.com/watch?v=VEpMj-tqixs)
+[<img src="https://i.ytimg.com/vi/VEpMj-tqixs/hqdefault.jpg">](https://www.youtube.com/watch?v=VEpMj-tqixs)
 
 Torniamo, quindi, al decennio scorso. Racconto a Haefeli di come ho scoperto i **Daughter** attraverso il video online, di quanto rimasi ammaliato da quella semplicità vellutata e lui continua: “Youth è il classico brano che suona da Dio pur avendo praticamente voce, chitarra e batteria anonime. Il suo pregio risiede piuttosto nel come l’emozione è veicolata. Col tempo siamo diventati sempre più strutturati, ma continuiamo a cercare un riverbero di quel pregio in quello che facciamo”. Sembra proprio che in ***Stereo Mind Game*** la ricerca sia andata a buon fine.
 
