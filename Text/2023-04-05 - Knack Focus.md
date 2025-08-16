@@ -38,12 +38,12 @@ Op school was Elena Tonra (33) een verlegen buitenbeentje dat graag las en schre
 
 **Tonra:** Hopen dat er iets uit de lucht komt vallen. (*lacht*) Er is geen aan-en-uitknop. Ik krabbel altijd wel de omschrijving van een gevoel of fragmenten van een opgevangen gesprek neer. Of denk na. Niet om dramatisch te doen, maar ik ben zo vaak met een gebroken hart achtergebleven dat het tot me doordrong dat niets in het leven zeker is. Daarover tobben is tijd die je beter besteedt aan genieten terwijl iets er nog wél is.
 
-> [NOTE!] 
+> [!NOTE] 
 > Stereo Mind Game
 > Uit op 07.04 bij 4AD.
 
 
-> [NOTE!]
+> [!NOTE]
 > Daughter
 > Opgericht in 2010 nadat Elena Tonra (zang, gitaar), Igor Haefeli (gitaar, links op de foto) en Remi Aguilella (drums) elkaar op een Londense muziekschool hebben leren kennen.
 > Maakt etherische indiepop waarbij de muziek de angst en wanhoop in Tonra’s teksten tempert.
