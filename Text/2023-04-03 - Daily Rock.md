@@ -3,7 +3,7 @@
 # DAUGHTER
 ## Vers la lumière
 
-<img src="Images/Marika Kochiashvili/Daughter-Party-Press-Shot-by-Marika-Kochiashvili.jpeg">
+<img src="/Images/Marika Kochiashvili/Daughter-Party-Press-Shot-by-Marika-Kochiashvili.jpeg">
 
 **<p align="center">
 Le trio revient après 7 ans d’absence avec leur nouvel opus « Stereo Mind Games », \
