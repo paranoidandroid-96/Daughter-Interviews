@@ -1,13 +1,17 @@
-<p align="center">
-[Musik](https://kulturnews.de/rubrik/musik/)
+<div align="center">
+  
+[Musik](https://kulturnews.de/rubrik/musik/)  
 [Interviews](https://kulturnews.de/rubrik/alle-interviews/) | [Story](https://kulturnews.de/rubrik/musik/musik-stories/) | [Interview](https://kulturnews.de/rubrik/musik/interview-musik/)
-</p>
+
+</div>
 
 # Daughter im Interview zu „Stereo Mind Game“: Wie naiv ist das denn? 
 
-<p align="center">
-Von [Carsten Schrader](https://kulturnews.de/autor/carsten-schrader/) // 4. April 2023
-</p>
+<div align="center">
+
+Von [Carsten Schrader](https://kulturnews.de/autor/carsten-schrader/) // 4. April 2023  
+
+</div>
 
 <img src="/Images/Marika Kochiashvili/Daughter_Marika-Kochiashvili_3Q1A6293-1.jpg">
 (Foto: Marika Kochiashvili)
@@ -40,7 +44,7 @@ Haefeli: Traurigkeit gehört zum Leben dazu, und wir haben uns für eine lange Z
 
 Haefeli: Das hat sie damals so gesagt? (*lacht*) Nun, wir sind auf dem Weg dahin und so nah dran wie nie zuvor. Und verglichen mit unserer Anfangszeit fühle ich mich auch durchaus älter.
 
-> [NOTE!]
+> [!NOTE]
 > **„Stereo Mind Game“ erscheint am 7. April.**
 
 Tags:
