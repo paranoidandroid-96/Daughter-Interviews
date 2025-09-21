@@ -4,9 +4,11 @@ Speciali / Interviste
 
 # Intervista ai Daughter: “Credo nella natura dinamica della vita”
 
-<p align="center">
+<div align="center">
+
 By: [Letizia Bognanni](https://rumoremag.com/author/letizia/) | Date: 07/04/2023
-</p>
+
+</div>
 
 <img src="/Images/Marika Kochiashvili/Daughter-Party-Press-Shot-by-Marika-Kochiashvili.jpeg">
 
@@ -14,9 +16,11 @@ By: [Letizia Bognanni](https://rumoremag.com/author/letizia/) | Date: 07/04/2023
 
 ## Il chitarrista dei Daughter Igor Haefeli racconta il nuovo album della band, Stereo Mind Games
 
-<p align="center">
+<div align="center">
+
 di **Letizia Bognanni**
-</p>
+
+</div>
 
 Sono passati sette anni dall’ultimo album dei [Daughter](https://rumoremag.com/tag/daughter) [*Not To Disappear*](https://rumoremag.com/2016/10/18/ascolta-daughter-the-end/), sette anni in cui i tre – [Elena Tonra](https://rumoremag.com/2019/02/01/intervista-ex-re-elena-tonra-daughter/), Igor Haefeli e Remi Aguilella – non sono scomparsi: ci sono stati lavori solisti, una colonna sonora (per il videogioco [*Life Is Strange: Before The Storm*](https://en.wikipedia.org/wiki/Life_Is_Strange:_Before_the_Storm)), collaborazioni, e tanto lavoro a distanza, da prima che fosse obbligo e nuova normalità, per il nuovo Stereo Mind Games. Prodotto da Haefeli e Tonra, è stato scritto e registrato in varie località tra cui Devon, Bristol e Londra in Inghilterra, San Diego in California e Vancouver, nello stato di Washington e suona come un disco quasi profetico, in cui connessione e disconnessione permeano i dodici brani in senso letterale e figurato. Ce lo siamo fatto raccontare dal chitarrista [Igor Haefeli](https://www.discogs.com/artist/2218595-Igor-Haefeli).
 
