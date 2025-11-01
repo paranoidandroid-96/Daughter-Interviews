@@ -3,7 +3,7 @@
 # HYH INTERVIEW WITH DAUGHTER - ‘Stereo Mind Game’
 
 <p align="center">
-<img src="/Text/Images/1080x1080_Daughter.png">
+<img src="/Text/Resources/1080x1080_Daughter.png">
 </p>
 
 <div align="center">
