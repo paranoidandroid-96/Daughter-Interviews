@@ -27,7 +27,7 @@ Cuando empiezas a hacerte mayor, como es nuestro caso, te vuelves más conscient
 
 Todo lo hacemos de forma más deliberada. Los accidentes siempre pasan y suelen ser geniales. Pero en términos de proceso de pensamiento o equipo, dispusimos las cosas de manera que pudiésemos crear accidentes en lugar de dejar que nos sucedieran.
 
-> “Tampoco es que hubiera la intención de sonar grandes. Sobre todo queríamos que el álbum tuviera más pegada, con un poco menos de \u003Cem\u003Ereverb\u003C\u002Fem\u003E que nuestros discos anteriores. Hemos trabajado con cuerdas unas cuantas veces, sobre todo en cosas en directo, y queríamos aportar ese elemento al álbum”
+> “Tampoco es que hubiera la intención de sonar grandes. Sobre todo queríamos que el álbum tuviera más pegada, con un poco menos de *reverb* que nuestros discos anteriores. Hemos trabajado con cuerdas unas cuantas veces, sobre todo en cosas en directo, y queríamos aportar ese elemento al álbum”
 > *Igor Haefeli*
 
 **El primer single del álbum, “Be On Your Way”, aporta un nuevo ímpetu cinematográfico al sonido del grupo, sobre todo por las cuerdas del 12 Ensemble. Sonáis grandes sin perder la intimidad.**
