@@ -85,7 +85,7 @@
 [Tomorrow]
 
 By tomorrow we'll be swimming with the fishes \
-Leave our troubles in the sand \ 
+Leave our troubles in the sand \
 And when the sun comes up \
 We'll be nothing but dust \
 Just the outlines of our hands 
