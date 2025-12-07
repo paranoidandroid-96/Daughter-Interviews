@@ -88,12 +88,12 @@ By tomorrow we'll be swimming with the fishes \
 Leave our troubles in the sand \ 
 And when the sun comes up \
 We'll be nothing but dust \
-Just the outlines of our hands \
+Just the outlines of our hands 
 
 By tomorrow we'll be lost amongst the leaves \
 In a wind that chills the skeletons of trees \
 And when the moon, it shines, I will leave two lines \
-Just find my love, then find me \
+Just find my love, then find me 
 
 But don't bring tomorrow \
 Cause I already know \
@@ -101,12 +101,12 @@ I'll lose you \
 But don't bring tomorrow \
 Cause I already know \
 I'll lose you \
-I'll lose you \
+I'll lose you 
 
 By tomorrow I'll be left in the darkness \
 Amongst your cold sheets \
 And your shoes will be gone \
-And your body warmth no longer beside me \
+And your body warmth no longer beside me 
 
 So don't bring tomorrow \
 Cause I already know \
@@ -114,9 +114,9 @@ I'll lose you \
 Don't bring tomorrow \
 Cause I already know \
 I'll lose you \
-I'll lose you \
+I'll lose you 
 
-**Georgie:** Daughter live in session, that was absoulutely gorgeous! So lovely, what were you kind of listening when you wrote that?
+**Georgie:** Daughter live in session, that was absolutely gorgeous! So lovely, what were you kind of listening when you wrote that?
 
 **Elena:** You know, I'm not really sure, I don't know, I sort of don't really, yeah I don't really think about it when I write, so it just comes out I think, but yeah, I don't know, very strange.
 
