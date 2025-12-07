@@ -80,39 +80,41 @@
 
 **Georgie:** So, live on Brighton Festival Radio 87.7 FM, this is Daughter.
 
+[<img src="https://i.vimeocdn.com/video/156777171-dfcfa97f131513e47446cc61cc3b4667cbe3813d4835bc2e3caf28ac4ae2188e-d_2400">](https://vimeo.com/23999853)
+
 [Tomorrow]
 
-By tomorrow we'll be swimming with the fishes
-Leave our troubles in the sand
-And when the sun comes up
-We'll be nothing but dust
-Just the outlines of our hands
+By tomorrow we'll be swimming with the fishes \
+Leave our troubles in the sand \ 
+And when the sun comes up \
+We'll be nothing but dust \
+Just the outlines of our hands \
 
-By tomorrow we'll be lost amongst the leaves
-In a wind that chills the skeletons of trees
-And when the moon, it shines, I will leave two lines
-Just find my love, then find me
+By tomorrow we'll be lost amongst the leaves \
+In a wind that chills the skeletons of trees \
+And when the moon, it shines, I will leave two lines \
+Just find my love, then find me \
 
-But don't bring tomorrow
-Cause I already know 
-I'll lose you
-But don't bring tomorrow
-Cause I already know 
-I'll lose you
-I'll lose you
+But don't bring tomorrow \
+Cause I already know \
+I'll lose you \
+But don't bring tomorrow \
+Cause I already know \
+I'll lose you \
+I'll lose you \
 
-By tomorrow I'll be left in the darkness
-Amongst your cold sheets
-And your shoes will be gone
-And your body warmth no longer beside me
+By tomorrow I'll be left in the darkness \
+Amongst your cold sheets \
+And your shoes will be gone \
+And your body warmth no longer beside me \
 
-So don't bring tomorrow
-Cause I already know 
-I'll lose you
-Don't bring tomorrow
-Cause I already know 
-I'll lose you
-I'll lose you
+So don't bring tomorrow \
+Cause I already know \
+I'll lose you \
+Don't bring tomorrow \
+Cause I already know \
+I'll lose you \
+I'll lose you \
 
 **Georgie:** Daughter live in session, that was absoulutely gorgeous! So lovely, what were you kind of listening when you wrote that?
 

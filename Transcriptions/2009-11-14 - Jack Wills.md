@@ -2,7 +2,7 @@
 
 [<img src="https://i.ytimg.com/vi/mCXr74SohgQ/maxresdefault.jpg">](https://www.youtube.com/watch?v=mCXr74SohgQ)
 
-**Isabel:** Hi, it's Isabel and we've just come back from the Jack Wills Unsigned Freshers' Tour and now we're here at the brand new Islington store. So today in the basement here at this store we've got two girls you may recognise from the Jack Wills Unsigned website who we interviewed a few months ago. We've got Charlotte Campbell and Elena Torma playing for us today.
+**Isabel:** Hi, it's Isabel and we've just come back from the Jack Wills Unsigned Freshers' Tour and now we're here at the brand new Islington store. So today in the basement here at this store we've got two girls you may recognise from the Jack Wills Unsigned website who we interviewed a few months ago. We've got Charlotte Campbell and Elena Tonra playing for us today.
 
 **Charlotte:** I'm going to do a cover of by Akon's just because I think it's jokes. So, hey.
 
@@ -34,11 +34,11 @@
 
 [Your Kisses]
 
-It's all too much
-You're so cold to touch
-You don't open up, open up.
-Your kisses are not what I wanted
-Your kisses are not what I crave
+It's all too much \
+You're so cold to touch \
+You don't open up, open up. \
+Your kisses are not what I wanted \
+Your kisses are not what I crave \
 Your kisses may be a beautiful art
 
 **Isabel:** So I'm sitting in the basement now with Elena. You just did a little performance for us. How do you feel about it?

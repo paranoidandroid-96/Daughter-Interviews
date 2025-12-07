@@ -101,7 +101,7 @@
 
 **Elena:** Yeah, that was cool.
 
-**Lauren:** That is a bunch of that stuff. Ben Howard, Johnny Flynn, J.J. Pistolet, Alessi's Art. I mean, they're all kind of a lovely bunch. Have they been instrumental in supporting you and keeping you making music and stuff?
+**Lauren:** That is a bunch of that stuff. Ben Howard, Johnny Flynn, Jay Jay Pistolet, Alessi's Art. I mean, they're all kind of a lovely bunch. Have they been instrumental in supporting you and keeping you making music and stuff?
 
 **Elena:** Definitely. I mean, I met Kev really early on, and he was the first person that kind of said "come down to a Communion night and play". And it was just really like, as soon as you go in there, it's just like, oh, so many lovely, supportive people. So, yeah, that was really good. 
 
