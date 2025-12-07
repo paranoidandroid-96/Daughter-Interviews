@@ -1,6 +1,6 @@
 # 2011-06-04 - Virtual Festivals
 
-[<img src="https://i.ytimg.com/vi/atPpaEL0lJo/maxresdefault.jpg">](https://www.youtube.com/watch?v=atPpaEL0lJo)
+[<img src="https://i.ytimg.com/vi/atPpaEL0lJo/sddefault.jpg">](https://www.youtube.com/watch?v=atPpaEL0lJo)
 
 **Will:** Okay, hey, we're at Virtual Festivals again. We are here with Eleanor, aka Daughter.
 
