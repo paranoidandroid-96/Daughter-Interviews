@@ -8,7 +8,7 @@
 
 **Marcus:** Tell me about Communion, which is a platform for musicians set up by, among others, Ben Lovett from Mumford and Sons, and they've sort of taken you to some extent under their wing.
 
-**Elena:** Yeah, definitely. Kev, who's one of the co-founders, probably about three years ago, like really quite a long time ago now, and he offered me a gig at Communion Night in the Musing Hill Arts Club.
+**Elena:** Yeah, definitely. Kev, who's one of the co-founders, probably about three years ago, like really quite a long time ago now, and he offered me a gig at Communion Night in the Notting Hill Arts Club.
 
 **Marcus:** OK.
 
