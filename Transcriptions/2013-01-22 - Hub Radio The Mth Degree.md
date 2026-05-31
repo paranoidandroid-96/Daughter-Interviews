@@ -56,7 +56,7 @@
 
 **Elena:** The 18th?
 
-**Igor:**I think it's the 18th, maybe.
+**Igor:** I think it's the 18th, maybe.
 
 **Elena:** You're rubbish.
 
